@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 惊喜随时上演 - 2025-08-01
+![惊喜随时上演](https://cn.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 皇家英里大道, 爱丁堡, 苏格兰 (© MEDITERRANEAN/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E7%88%B1%E4%B8%81%E5%A0%A1%E8%89%BA%E7%A9%97%E8%8A%82&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-01.jpg)
+
+
+
 ## 远离尘嚣 - 2025-07-31
 ![远离尘嚣](https://cn.bing.com/th?id=OHR.NaPaliKauai_ZH-CN5070149838_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
