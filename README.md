@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 你好，黄色！ - 2025-08-03
+![你好，黄色！](https://cn.bing.com/th?id=OHR.HappySunflower_ZH-CN5840993161_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 夏天田野里盛开的向日葵 (© Arsgera/Shutterstock)
+> [了解更多](https://www.bing.com/search?q=%E5%90%91%E6%97%A5%E8%91%B5&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.HappySunflower_ZH-CN5840993161_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-03.jpg)
+
+
+
 ## 古老的岩画 - 2025-08-02
 ![古老的岩画](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
