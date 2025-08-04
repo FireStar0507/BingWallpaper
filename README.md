@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 这是谁的家？ - 2025-08-04
+![这是谁的家？](https://cn.bing.com/th?id=OHR.LaplandOwl_ZH-CN6070251232_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 巢中的乌林鸮, 芬兰 (© imageBROKER.com/Alamy Stock Photo)
+> [了解更多](https://www.bing.com/search?q=%E7%8C%AB%E5%A4%B4%E9%B9%B0&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.LaplandOwl_ZH-CN6070251232_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-04.jpg)
+
+
+
 ## 你好，黄色！ - 2025-08-03
 ![你好，黄色！](https://cn.bing.com/th?id=OHR.HappySunflower_ZH-CN5840993161_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
