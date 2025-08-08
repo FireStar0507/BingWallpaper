@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 奔流不息，为你为我 - 2025-08-08
+![奔流不息，为你为我](https://cn.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 伊瓜苏瀑布的三火枪瀑布, 阿根廷 (© Mark Meredith/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E4%BC%8A%E7%93%9C%E8%8B%8F%E7%80%91%E5%B8%83+%E9%98%BF%E6%A0%B9%E5%BB%B7+%E5%B7%B4%E8%A5%BF&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-08.jpg)
+
+
+
 ## 海岸的密码 - 2025-08-07
 ![海岸的密码](https://cn.bing.com/th?id=OHR.GasparillaLight_ZH-CN6855683859_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%9C%86%E9%A1%B6%E7%A4%81%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.FruitaPetroglyphs_ZH-CN5423905955_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-02.jpg)
-
-
-
-## 惊喜随时上演 - 2025-08-01
-![惊喜随时上演](https://cn.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 皇家英里大道, 爱丁堡, 苏格兰 (© MEDITERRANEAN/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E7%88%B1%E4%B8%81%E5%A0%A1%E8%89%BA%E7%A9%97%E8%8A%82&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.EdinburghFringe_ZH-CN5243292664_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-01.jpg)
 
 
 
