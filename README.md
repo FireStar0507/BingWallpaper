@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 水下翱翔 - 2025-08-15
+![水下翱翔](https://cn.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 斑点鹞鲼，圣克里斯托瓦尔岛‌，‌加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)
+> [了解更多](https://www.bing.com/search?q=%E6%96%91%E7%82%B9%E9%B9%9E%E9%B2%BC&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-15.jpg)
+
+
+
 ## 从山顶俯瞰 - 2025-08-14
 ![从山顶俯瞰](https://cn.bing.com/th?id=OHR.PizNairPeak_ZH-CN8209144138_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E5%9C%9F%E8%91%97%E4%BA%BA%E6%B0%91%E5%9B%BD%E9%99%85%E6%97%A5&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.MaoriRock_ZH-CN5614685493_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-09.jpg)
-
-
-
-## 奔流不息，为你为我 - 2025-08-08
-![奔流不息，为你为我](https://cn.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 伊瓜苏瀑布的三火枪瀑布, 阿根廷 (© Mark Meredith/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E4%BC%8A%E7%93%9C%E8%8B%8F%E7%80%91%E5%B8%83+%E9%98%BF%E6%A0%B9%E5%BB%B7+%E5%B7%B4%E8%A5%BF&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.IguazuArgentina_ZH-CN4457051931_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-08.jpg)
 
 
 
