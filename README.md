@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 眺望大海的高塔 - 2025-08-17
+![眺望大海的高塔](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 灵维格灯塔，维泽桑讷，丹麦 (© Caroline Brundle Bugge/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E7%81%AF%E5%A1%94&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-17.jpg)
+
+
+
 ## 成为改变的一“蜂” - 2025-08-16
 ![成为改变的一“蜂”](https://cn.bing.com/th?id=OHR.ColorfulBeehives_ZH-CN0180195770_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%84%8F%E5%A4%A7%E5%88%A9%E5%A4%9A%E6%B4%9B%E7%B1%B3%E8%92%82%E5%B1%B1&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.SantaMaddalena_ZH-CN7421083295_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-11.jpg)
-
-
-
-## 为正义怒吼 - 2025-08-10
-![为正义怒吼](https://cn.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 马赛马拉国家保护区的雌狮,肯尼亚 (© Tandem Stock/Adobe Stock)
-> [了解更多](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E7%8B%AE%E5%AD%90%E6%97%A5&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.LionessKenya_ZH-CN6791029673_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-10.jpg)
 
 
 
