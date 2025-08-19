@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 随海而流的岩石！ - 2025-08-19
+![随海而流的岩石！](https://cn.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 祖马亚的复理层，巴斯克地区，西班牙 (© Eloi_Omella/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E8%A5%BF%E7%8F%AD%E7%89%99%E7%A5%96%E9%A9%AC%E4%BA%9A%E7%9A%84%E5%A4%8D%E7%90%86%E7%9F%B3&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-19.jpg)
+
+
+
 ## 溪流入梦 - 2025-08-18
 ![溪流入梦](https://cn.bing.com/th?id=OHR.AvalancheLake_ZH-CN1442576083_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%A4%A9%E7%84%B6%E6%8B%B1%E9%97%A8&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.CoronaArch_ZH-CN5406267193_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-13.jpg)
-
-
-
-## 野性、智慧与奇迹 - 2025-08-12
-![野性、智慧与奇迹](https://cn.bing.com/th?id=OHR.KenyaElephants_ZH-CN7587207512_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 非洲象群, 安博塞利国家公园, 肯尼亚 (© Chase Dekker/Minden Pictures)
-> [了解更多](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E5%A4%A7%E8%B1%A1%E6%97%A5&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.KenyaElephants_ZH-CN7587207512_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-12.jpg)
 
 
 
