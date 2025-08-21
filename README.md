@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 伫立凝视 - 2025-08-21
+![伫立凝视](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN2663965839_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 穗䳭和盛开的帚石楠，峰区国家公园，英格兰 (© Ben Hall/Nature Picture Library)
+> [了解更多](https://www.bing.com/search?q=%E7%A9%97%E4%B3%AD&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN2663965839_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-21.jpg)
+
+
+
 ## 永恒的建筑 - 2025-08-20
 ![永恒的建筑](https://cn.bing.com/th?id=OHR.CitadelBonifacio_ZH-CN2130899430_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%96%91%E7%82%B9%E9%B9%9E%E9%B2%BC&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-15.jpg)
-
-
-
-## 从山顶俯瞰 - 2025-08-14
-![从山顶俯瞰](https://cn.bing.com/th?id=OHR.PizNairPeak_ZH-CN8209144138_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 皮兹奈尔山缆车站, 格劳宾登州, 瑞士 (© Roberto Moiola/Alamy)
-> [了解更多](https://www.bing.com/search?q=%E5%A5%88%E5%B0%94%E5%B3%B0&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.PizNairPeak_ZH-CN8209144138_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-14.jpg)
 
 
 
