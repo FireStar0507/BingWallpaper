@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 大自然的绿色地毯 - 2025-08-22
+![大自然的绿色地毯](https://cn.bing.com/th?id=OHR.PalouseWA_ZH-CN2552273820_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 帕卢斯连绵起伏的丘陵，华盛顿州，美国 (© svetlana57/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E5%B8%95%E5%8D%A2%E6%96%AF%E5%9C%B0%E5%8C%BA&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.PalouseWA_ZH-CN2552273820_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-22.jpg)
+
+
+
 ## 伫立凝视 - 2025-08-21
 ![伫立凝视](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN2663965839_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E8%9C%9C%E8%9C%82&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.ColorfulBeehives_ZH-CN0180195770_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-16.jpg)
-
-
-
-## 水下翱翔 - 2025-08-15
-![水下翱翔](https://cn.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 斑点鹞鲼，圣克里斯托瓦尔岛‌，‌加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)
-> [了解更多](https://www.bing.com/search?q=%E6%96%91%E7%82%B9%E9%B9%9E%E9%B2%BC&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.SpottedEagleRay_ZH-CN9894613260_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-15.jpg)
 
 
 
