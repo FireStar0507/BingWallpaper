@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 彩林叠翠间的瀑布 - 2025-08-23
+![彩林叠翠间的瀑布](https://cn.bing.com/th?id=OHR.ChushuY25_ZH-CN0495086720_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 秋季九寨沟国家公园里的诺日朗瀑布, 四川省, 中国 (© tawatchaiprakobkit/Getty images)
+> [了解更多](https://www.bing.com/search?q=%E8%AF%BA%E6%97%A5%E6%9C%97%E7%80%91%E5%B8%83&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.ChushuY25_ZH-CN0495086720_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-23.jpg)
+
+
+
 ## 大自然的绿色地毯 - 2025-08-22
 ![大自然的绿色地毯](https://cn.bing.com/th?id=OHR.PalouseWA_ZH-CN2552273820_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%81%AF%E5%A1%94&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-17.jpg)
-
-
-
-## 成为改变的一“蜂” - 2025-08-16
-![成为改变的一“蜂”](https://cn.bing.com/th?id=OHR.ColorfulBeehives_ZH-CN0180195770_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 色彩斑斓的蜂巢, 意大利 (© Roberto Caucino/Shutterstock)
-> [了解更多](https://www.bing.com/search?q=%E8%9C%9C%E8%9C%82&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.ColorfulBeehives_ZH-CN0180195770_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-16.jpg)
 
 
 
