@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## “跟我来” - 2025-08-24
+![“跟我来”](https://cn.bing.com/th?id=OHR.CervusDama_ZH-CN3603505811_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 欧洲黇鹿‌，英格兰 (© Enrique Aguirre Aves/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E6%AC%A7%E6%B4%B2%E9%BB%87%E9%B9%BF%E2%80%8C&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.CervusDama_ZH-CN3603505811_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-24.jpg)
+
+
+
 ## 彩林叠翠间的瀑布 - 2025-08-23
 ![彩林叠翠间的瀑布](https://cn.bing.com/th?id=OHR.ChushuY25_ZH-CN0495086720_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%BA%BD%E7%BA%A6%E5%B7%9E%E9%9B%AA%E5%B4%A9%E6%B9%96&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.AvalancheLake_ZH-CN1442576083_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-18.jpg)
-
-
-
-## 眺望大海的高塔 - 2025-08-17
-![眺望大海的高塔](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 灵维格灯塔，维泽桑讷，丹麦 (© Caroline Brundle Bugge/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E7%81%AF%E5%A1%94&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.LyngvigLighthouse_ZH-CN0836204503_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-17.jpg)
 
 
 
