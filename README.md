@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 从火山之源到河流之路 - 2025-08-25
+![从火山之源到河流之路](https://cn.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 方解石温泉区和黄石河，黄石国家公园，怀俄明州，美国 (© Rebecca L. Latson/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E9%BB%84%E7%9F%B3%E6%B2%B3&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-25.jpg)
+
+
+
 ## “跟我来” - 2025-08-24
 ![“跟我来”](https://cn.bing.com/th?id=OHR.CervusDama_ZH-CN3603505811_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E8%A5%BF%E7%8F%AD%E7%89%99%E7%A5%96%E9%A9%AC%E4%BA%9A%E7%9A%84%E5%A4%8D%E7%90%86%E7%9F%B3&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-19.jpg)
-
-
-
-## 溪流入梦 - 2025-08-18
-![溪流入梦](https://cn.bing.com/th?id=OHR.AvalancheLake_ZH-CN1442576083_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 雪崩湖步道，阿迪朗达克高峰区，纽约州，美国 (© Posnov/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E7%BA%BD%E7%BA%A6%E5%B7%9E%E9%9B%AA%E5%B4%A9%E6%B9%96&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.AvalancheLake_ZH-CN1442576083_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-18.jpg)
 
 
 
