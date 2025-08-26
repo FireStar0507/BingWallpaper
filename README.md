@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 一座非凡的特鲁洛小镇 - 2025-08-26
+![一座非凡的特鲁洛小镇](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利 (© Feng Wei Photography/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E9%98%BF%E5%B0%94%E8%B4%9D%E7%BD%97%E8%B4%9D%E6%B4%9B&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-26.jpg)
+
+
+
 ## 从火山之源到河流之路 - 2025-08-25
 ![从火山之源到河流之路](https://cn.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%8D%9A%E5%B0%BC%E6%B3%95%E4%B9%94&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.CitadelBonifacio_ZH-CN2130899430_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-20.jpg)
-
-
-
-## 随海而流的岩石！ - 2025-08-19
-![随海而流的岩石！](https://cn.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 祖马亚的复理层，巴斯克地区，西班牙 (© Eloi_Omella/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E8%A5%BF%E7%8F%AD%E7%89%99%E7%A5%96%E9%A9%AC%E4%BA%9A%E7%9A%84%E5%A4%8D%E7%90%86%E7%9F%B3&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.GipuzcoaSummer_ZH-CN1926924422_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-19.jpg)
 
 
 
