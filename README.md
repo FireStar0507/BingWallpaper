@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 海洋上方的湖泊 - 2025-08-27
+![海洋上方的湖泊](https://cn.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 瑟沃格湖，瓦加尔岛，法罗群岛 (© Anton Petrus/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E7%91%9F%E6%B2%83%E6%A0%BC%E6%B9%96&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-27.jpg)
+
+
+
 ## 一座非凡的特鲁洛小镇 - 2025-08-26
 ![一座非凡的特鲁洛小镇](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%A9%97%E4%B3%AD&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.WheatearBird_ZH-CN2663965839_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-21.jpg)
-
-
-
-## 永恒的建筑 - 2025-08-20
-![永恒的建筑](https://cn.bing.com/th?id=OHR.CitadelBonifacio_ZH-CN2130899430_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 博尼法乔城堡，科西嘉岛南部，法国 (© Marc Dozier/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%8D%9A%E5%B0%BC%E6%B3%95%E4%B9%94&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.CitadelBonifacio_ZH-CN2130899430_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-20.jpg)
 
 
 
