@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 风景如画的葡萄园 - 2025-09-01
+![风景如画的葡萄园](https://cn.bing.com/th?id=OHR.FieldKaiserstuhl_ZH-CN0467488834_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 凯撒施图尔，巴登-符腾堡，德国 (© EyeEM Mobile GmbH/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E5%B7%B4%E7%99%BB-%E7%AC%A6%E8%85%BE%E5%A0%A1&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.FieldKaiserstuhl_ZH-CN0467488834_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-01.jpg)
+
+
+
 ## 彩绘的云，静默的悬崖 - 2025-08-31
 ![彩绘的云，静默的悬崖](https://cn.bing.com/th?id=OHR.ScottsBluff_ZH-CN0292735112_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E9%98%BF%E5%B0%94%E8%B4%9D%E7%BD%97%E8%B4%9D%E6%B4%9B&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-26.jpg)
-
-
-
-## 从火山之源到河流之路 - 2025-08-25
-![从火山之源到河流之路](https://cn.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 方解石温泉区和黄石河，黄石国家公园，怀俄明州，美国 (© Rebecca L. Latson/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E9%BB%84%E7%9F%B3%E6%B2%B3&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.YellowstoneRiver_ZH-CN3716808579_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-25.jpg)
 
 
 
