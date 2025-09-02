@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 死谷的幽灵 - 2025-09-02
+![死谷的幽灵](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 骆驼刺树, 死亡谷, 纳米布-诺克卢福国家公园, 纳米比亚 (© Inge Johnsson/Alamy Stock Photo)
+> [了解更多](https://www.bing.com/search?q=%E7%BA%B3%E7%B1%B3%E6%AF%94%E4%BA%9A%E7%BA%B3%E7%B1%B3%E5%B8%83%E8%AF%BA%E5%85%8B%E8%B7%AF%E7%A6%8F%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-02.jpg)
+
+
+
 ## 风景如画的葡萄园 - 2025-09-01
 ![风景如画的葡萄园](https://cn.bing.com/th?id=OHR.FieldKaiserstuhl_ZH-CN0467488834_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%91%9F%E6%B2%83%E6%A0%BC%E6%B9%96&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-27.jpg)
-
-
-
-## 一座非凡的特鲁洛小镇 - 2025-08-26
-![一座非凡的特鲁洛小镇](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 阿尔贝罗贝洛的特鲁洛建筑，普利亚大区，意大利 (© Feng Wei Photography/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E9%98%BF%E5%B0%94%E8%B4%9D%E7%BD%97%E8%B4%9D%E6%B4%9B&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.TrulliHouses_ZH-CN3856452406_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-26.jpg)
 
 
 
