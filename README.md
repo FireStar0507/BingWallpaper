@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 享受宁静 - 2025-09-03
+![享受宁静](https://cn.bing.com/th?id=OHR.MinnesotaWaters_ZH-CN6078521418_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 边界水域独木舟区荒野区, 明尼苏达州, 美国 (© s.tomas/Shutterstock)
+> [了解更多](https://www.bing.com/search?q=+%E6%98%8E%E5%B0%BC%E8%8B%8F%E8%BE%BE%E5%B7%9E%E8%BE%B9%E7%95%8C%E6%B0%B4%E5%9F%9F&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.MinnesotaWaters_ZH-CN6078521418_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-03.jpg)
+
+
+
 ## 死谷的幽灵 - 2025-09-02
 ![死谷的幽灵](https://cn.bing.com/th?id=OHR.DeadvleiTrees_ZH-CN0967414858_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%A4%A7%E7%99%BD%E9%B9%AD&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.WhiteEgret_ZH-CN4425921150_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-28.jpg)
-
-
-
-## 海洋上方的湖泊 - 2025-08-27
-![海洋上方的湖泊](https://cn.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 瑟沃格湖，瓦加尔岛，法罗群岛 (© Anton Petrus/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E7%91%9F%E6%B2%83%E6%A0%BC%E6%B9%96&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.FaroeLake_ZH-CN3977660997_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-27.jpg)
 
 
 
