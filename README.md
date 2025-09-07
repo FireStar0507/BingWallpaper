@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 淡彩的梦境和静水 - 2025-09-07
+![淡彩的梦境和静水](https://cn.bing.com/th?id=OHR.BlueGdansk_ZH-CN3328928509_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 位于莫特拉瓦河河畔的格但斯克市，波兰 (© Oscar Dominguez/TANDEM Stills + Motion)
+> [了解更多](https://www.bing.com/search?q=%E6%B3%A2%E5%85%B0%E6%A0%BC%E4%BD%86%E6%96%AF%E5%85%8B%E5%B8%82&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.BlueGdansk_ZH-CN3328928509_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-07.jpg)
+
+
+
 ## 忙碌的一天 - 2025-09-06
 ![忙碌的一天](https://cn.bing.com/th?id=OHR.RufousHummer_ZH-CN1777072350_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%B7%B4%E7%99%BB-%E7%AC%A6%E8%85%BE%E5%A0%A1&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.FieldKaiserstuhl_ZH-CN0467488834_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-01.jpg)
-
-
-
-## 彩绘的云，静默的悬崖 - 2025-08-31
-![彩绘的云，静默的悬崖](https://cn.bing.com/th?id=OHR.ScottsBluff_ZH-CN0292735112_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 杰灵的斯科茨布拉夫国家纪念碑‌, 内布拉斯加州,美国 (© Hawk Buckman/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E6%96%AF%E7%A7%91%E8%8C%A8%E5%B8%83%E6%8B%89%E5%A4%AB%E5%9B%BD%E5%AE%B6%E7%BA%AA%E5%BF%B5%E7%A2%91&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.ScottsBluff_ZH-CN0292735112_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/08/2025-08-31.jpg)
 
 
 
