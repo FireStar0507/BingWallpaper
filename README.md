@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 崎岖而狂野 - 2025-09-13
+![崎岖而狂野](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 烟囱岩, 雷斯岬国家海岸, 加利福尼亚州, 美国 (© Enrique Aguirre Aves/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E9%9B%B7%E6%96%AF%E5%B2%AC%E5%9B%BD%E5%AE%B6%E6%B5%B7%E5%B2%B8&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.PointReyesSeashore_ZH-CN0076789582_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-13.jpg)
+
+
+
 ## 野性畅游，自在徜徉 - 2025-09-12
 ![野性畅游，自在徜徉](https://cn.bing.com/th?id=OHR.SpinnerDolphins_ZH-CN9731341241_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%B3%A2%E5%85%B0%E6%A0%BC%E4%BD%86%E6%96%AF%E5%85%8B%E5%B8%82&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.BlueGdansk_ZH-CN3328928509_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-07.jpg)
-
-
-
-## 忙碌的一天 - 2025-09-06
-![忙碌的一天](https://cn.bing.com/th?id=OHR.RufousHummer_ZH-CN1777072350_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 棕煌蜂鸟，旧金山金门公园，加利福尼亚州，美国 (© jeremyborkat/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E6%A3%95%E7%85%8C%E8%9C%82%E9%B8%9F&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.RufousHummer_ZH-CN1777072350_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-06.jpg)
 
 
 
