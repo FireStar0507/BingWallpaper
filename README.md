@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 涉水寻迹 - 2025-09-15
+![涉水寻迹](https://cn.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 黑翅长脚鹬, 法国 (© Antonio Sementa/500px/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E9%BB%91%E7%BF%85%E9%95%BF%E8%84%9A%E9%B9%AC&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-15.jpg)
+
+
+
 ## 苔藓与薄雾 - 2025-09-14
 ![苔藓与薄雾](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%AC%A7%E4%BA%9A%E7%BA%A2%E6%9D%BE%E9%BC%A0&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.SwissSquirrel_ZH-CN1499344455_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-09.jpg)
-
-
-
-## 当天预订 - 2025-09-08
-![当天预订](https://cn.bing.com/th?id=OHR.OrchardLibrary_ZH-CN3578982798_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 乌节图书馆，新加坡 (© Darwin Fan/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E6%89%AB%E7%9B%B2%E6%97%A5&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.OrchardLibrary_ZH-CN3578982798_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-08.jpg)
 
 
 
