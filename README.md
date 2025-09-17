@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 成长中的冠冕 - 2025-09-17
+![成长中的冠冕](https://cn.bing.com/th?id=OHR.YoungMoose_ZH-CN4639410217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 迪纳利国家公园中的一头年轻雄性驼鹿, 阿拉斯加, 美国 (© Grant Ordelheide/TANDEM Stills + Motion)
+> [了解更多](https://www.bing.com/search?q=%E9%98%BF%E6%8B%89%E6%96%AF%E5%8A%A0%E9%A9%BC%E9%B9%BF&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.YoungMoose_ZH-CN4639410217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-17.jpg)
+
+
+
 ## 巨大的成功 - 2025-09-16
 ![巨大的成功](https://cn.bing.com/th?id=OHR.OzoneEarth_ZH-CN0993915980_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E8%92%99%E5%BC%97%E6%8B%89%E5%9C%AD%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.ExtremaduraJamon_ZH-CN1559355133_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-11.jpg)
-
-
-
-## 阳光明媚，赶紧打草 - 2025-09-10
-![阳光明媚，赶紧打草](https://cn.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 干草捆，北约克郡，英格兰 (© Nick Brundle Photography/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E8%8B%B1%E6%A0%BC%E5%85%B0%E7%BA%A6%E5%85%8B%E9%83%A1&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.YorkshireHay_ZH-CN9097986997_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-10.jpg)
 
 
 
