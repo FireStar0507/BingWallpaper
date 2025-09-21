@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 酷毙了 - 2025-09-21
+![酷毙了](https://cn.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 海獭，威廉王子湾，阿拉斯加州，美国 (© Gerald Corsi/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E6%B5%B7%E7%8D%AD&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-21.jpg)
+
+
+
 ## 关于啤酒和风景的故事 - 2025-09-20
 ![关于啤酒和风景的故事](https://cn.bing.com/th?id=OHR.OktoberfestSwing_ZH-CN5270146600_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E9%BB%91%E7%BF%85%E9%95%BF%E8%84%9A%E9%B9%AC&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-15.jpg)
-
-
-
-## 苔藓与薄雾 - 2025-09-14
-![苔藓与薄雾](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 奥林匹克国家公园的瀑布, 华盛顿, 美国 (© Chris Moore/TANDEM Stills + Motion)
-> [了解更多](https://www.bing.com/search?q=%E5%A5%A5%E6%9E%97%E5%8C%B9%E5%85%8B%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD+%E5%8D%8E%E7%9B%9B%E9%A1%BF&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.HohWaterfall_ZH-CN0297269806_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-14.jpg)
 
 
 
