@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 到冬天的中途 - 2025-09-22
+![到冬天的中途](https://cn.bing.com/th?id=OHR.AspenEquinox_ZH-CN5474695693_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 秋日的白杨树，鱼湖国家森林，犹他州，美国 (© Danita Delimont/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E7%99%BD%E6%9D%A8%E6%A0%91&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.AspenEquinox_ZH-CN5474695693_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-22.jpg)
+
+
+
 ## 酷毙了 - 2025-09-21
 ![酷毙了](https://cn.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E8%87%AD%E6%B0%A7%E6%97%A5&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.OzoneEarth_ZH-CN0993915980_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-16.jpg)
-
-
-
-## 涉水寻迹 - 2025-09-15
-![涉水寻迹](https://cn.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 黑翅长脚鹬, 法国 (© Antonio Sementa/500px/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E9%BB%91%E7%BF%85%E9%95%BF%E8%84%9A%E9%B9%AC&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.Echasse_ZH-CN0670369582_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-15.jpg)
 
 
 
