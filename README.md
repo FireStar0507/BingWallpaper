@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 孤独的巨人 - 2025-09-24
+![孤独的巨人](https://cn.bing.com/th?id=OHR.BearLodge_ZH-CN5880511888_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 魔鬼塔国家纪念碑, 怀俄明州，美国 (© Laura Hedien/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E9%AD%94%E9%AC%BC%E5%A1%94%E5%9B%BD%E5%AE%B6%E7%BA%AA%E5%BF%B5%E7%A2%91&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.BearLodge_ZH-CN5880511888_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-24.jpg)
+
+
+
 ## 树树皆秋色 - 2025-09-23
 ![树树皆秋色](https://cn.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E4%B8%81%E6%A0%BC%E5%B0%94%E5%8D%8A%E5%B2%9B&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.DunquinIreland_ZH-CN1418844818_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-18.jpg)
-
-
-
-## 成长中的冠冕 - 2025-09-17
-![成长中的冠冕](https://cn.bing.com/th?id=OHR.YoungMoose_ZH-CN4639410217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 迪纳利国家公园中的一头年轻雄性驼鹿, 阿拉斯加, 美国 (© Grant Ordelheide/TANDEM Stills + Motion)
-> [了解更多](https://www.bing.com/search?q=%E9%98%BF%E6%8B%89%E6%96%AF%E5%8A%A0%E9%A9%BC%E9%B9%BF&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.YoungMoose_ZH-CN4639410217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-17.jpg)
 
 
 
