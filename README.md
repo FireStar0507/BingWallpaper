@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 忠勇的雕刻石 - 2025-09-25
+![忠勇的雕刻石](https://cn.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 奇陶尔加尔堡, 拉贾斯坦邦, 印度 (© chetansoni/Shutterstock)
+> [了解更多](https://www.bing.com/search?q=%E5%A5%87%E9%99%B6%E5%B0%94%E5%8A%A0%E5%B0%94%E5%A0%A1%E5%8D%B0%E5%BA%A6&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-25.jpg)
+
+
+
 ## 孤独的巨人 - 2025-09-24
 ![孤独的巨人](https://cn.bing.com/th?id=OHR.BearLodge_ZH-CN5880511888_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%8D%83%E5%B2%9B%E7%BE%A4%E5%B2%9B+%E5%8C%97%E7%BE%8E%E6%B4%B2&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.ThousandIslands_ZH-CN3197750437_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-19.jpg)
-
-
-
-## 爱尔兰岛的西端 - 2025-09-18
-![爱尔兰岛的西端](https://cn.bing.com/th?id=OHR.DunquinIreland_ZH-CN1418844818_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 邓金码头的蛇形楼梯, 凯里郡, 爱尔兰 (© Hugh O'Connor/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E4%B8%81%E6%A0%BC%E5%B0%94%E5%8D%8A%E5%B2%9B&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.DunquinIreland_ZH-CN1418844818_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-18.jpg)
 
 
 
