@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 美丽的星空 - 2025-09-27
+![美丽的星空](https://cn.bing.com/th?id=OHR.TankLakes_ZH-CN6402368934_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 坦克湖 (Tank Lakes), 高山湖泊荒野区, 华盛顿州, 美国 (© Austin Trigg/TANDEM Stills + Motion)
+> [了解更多](https://www.bing.com/search?q=%E5%8D%8E%E7%9B%9B%E9%A1%BF%E5%B7%9E%E9%AB%98%E5%B1%B1%E6%B9%96%E6%B3%8A%E8%8D%92%E9%87%8E%E5%8C%BA&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.TankLakes_ZH-CN6402368934_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-27.jpg)
+
+
+
 ## 速度与毛茸茸 - 2025-09-26
 ![速度与毛茸茸](https://cn.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%B5%B7%E7%8D%AD&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.IceOtters_ZH-CN5393791969_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-21.jpg)
-
-
-
-## 关于啤酒和风景的故事 - 2025-09-20
-![关于啤酒和风景的故事](https://cn.bing.com/th?id=OHR.OktoberfestSwing_ZH-CN5270146600_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 慕尼黑啤酒节上的旋转木马，慕尼黑，巴伐利亚，德国 (© LOOK-foto/Alamy)
-> [了解更多](https://www.bing.com/search?q=%E6%85%95%E5%B0%BC%E9%BB%91%E5%95%A4%E9%85%92%E8%8A%82&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.OktoberfestSwing_ZH-CN5270146600_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-20.jpg)
 
 
 
