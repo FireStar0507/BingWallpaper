@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 彩虹骑行与宁静氛围 - 2025-09-29
+![彩虹骑行与宁静氛围](https://cn.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 豪滕镇的彩虹屋, 荷兰 (© George Pachantouris/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E8%B1%AA%E6%BB%95%E9%95%87%E8%8D%B7%E5%85%B0&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-29.jpg)
+
+
+
 ## 品味皮恩扎 - 2025-09-28
 ![品味皮恩扎](https://cn.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%A7%8B%E5%88%86&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.AutumnalEquinoxY25_ZH-CN5692548297_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-23.jpg)
-
-
-
-## 到冬天的中途 - 2025-09-22
-![到冬天的中途](https://cn.bing.com/th?id=OHR.AspenEquinox_ZH-CN5474695693_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 秋日的白杨树，鱼湖国家森林，犹他州，美国 (© Danita Delimont/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E7%99%BD%E6%9D%A8%E6%A0%91&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.AspenEquinox_ZH-CN5474695693_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-22.jpg)
 
 
 
