@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 法定自然区 - 2025-10-02
+![法定自然区](https://cn.bing.com/th?id=OHR.OxbowBend_ZH-CN7211791969_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 蛇河上的牛轭湖, 大提顿国家公园, 怀俄明州, 美国 (© DanitaDelimont.com/AWL Images/SuperStock)
+> [了解更多](https://www.bing.com/search?q=%E5%9B%BD%E5%AE%B6%E9%A3%8E%E6%99%AF%E4%B8%8E%E8%87%AA%E7%84%B6%E6%B2%B3%E6%B5%81%E4%BD%93%E7%B3%BB&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.OxbowBend_ZH-CN7211791969_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-02.jpg)
+
+
+
 ## 克拉克山脉的回声 - 2025-10-01
 ![克拉克山脉的回声](https://cn.bing.com/th?id=OHR.YosemiteClark_ZH-CN7179533292_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%9C%80%E5%B0%8F%E8%8A%B1%E6%A0%97%E9%BC%A0&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-26.jpg)
-
-
-
-## 忠勇的雕刻石 - 2025-09-25
-![忠勇的雕刻石](https://cn.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 奇陶尔加尔堡, 拉贾斯坦邦, 印度 (© chetansoni/Shutterstock)
-> [了解更多](https://www.bing.com/search?q=%E5%A5%87%E9%99%B6%E5%B0%94%E5%8A%A0%E5%B0%94%E5%A0%A1%E5%8D%B0%E5%BA%A6&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.FortChittorgarh_ZH-CN5999553283_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-25.jpg)
 
 
 
