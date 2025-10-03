@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 雾中遐想 - 2025-10-03
+![雾中遐想](https://cn.bing.com/th?id=OHR.SkyeHeather_ZH-CN2820283990_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 布里特尔峡谷里生长的帚石楠花, 斯凯岛, 苏格兰 (© Adam Mowery/TANDEM Stills + Motion)
+> [了解更多](https://www.bing.com/search?q=%E6%96%AF%E5%87%AF%E5%B2%9B&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.SkyeHeather_ZH-CN2820283990_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-03.jpg)
+
+
+
 ## 法定自然区 - 2025-10-02
 ![法定自然区](https://cn.bing.com/th?id=OHR.OxbowBend_ZH-CN7211791969_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%8D%8E%E7%9B%9B%E9%A1%BF%E5%B7%9E%E9%AB%98%E5%B1%B1%E6%B9%96%E6%B3%8A%E8%8D%92%E9%87%8E%E5%8C%BA&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.TankLakes_ZH-CN6402368934_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-27.jpg)
-
-
-
-## 速度与毛茸茸 - 2025-09-26
-![速度与毛茸茸](https://cn.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 最小花栗鼠, 库特奈国家公园, 蒙大拿州, 美国 (© Donald M. Jones/Minden Pictures)
-> [了解更多](https://www.bing.com/search?q=%E6%9C%80%E5%B0%8F%E8%8A%B1%E6%A0%97%E9%BC%A0&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.AutumnChipmunk_ZH-CN6224482683_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-26.jpg)
 
 
 
