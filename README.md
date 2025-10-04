@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 使命必达 - 2025-10-04
+![使命必达](https://cn.bing.com/th?id=OHR.DragonEndeavour_ZH-CN8160066040_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 从SpaceX载人龙飞船“奋进号”视角看到的国际空间站主太阳能电池阵列 (© NASA)
+> [了解更多](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E7%A9%BA%E9%97%B4%E5%91%A8&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.DragonEndeavour_ZH-CN8160066040_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-04.jpg)
+
+
+
 ## 雾中遐想 - 2025-10-03
 ![雾中遐想](https://cn.bing.com/th?id=OHR.SkyeHeather_ZH-CN2820283990_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%9A%AE%E6%81%A9%E6%89%8E&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-28.jpg)
-
-
-
-## 美丽的星空 - 2025-09-27
-![美丽的星空](https://cn.bing.com/th?id=OHR.TankLakes_ZH-CN6402368934_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 坦克湖 (Tank Lakes), 高山湖泊荒野区, 华盛顿州, 美国 (© Austin Trigg/TANDEM Stills + Motion)
-> [了解更多](https://www.bing.com/search?q=%E5%8D%8E%E7%9B%9B%E9%A1%BF%E5%B7%9E%E9%AB%98%E5%B1%B1%E6%B9%96%E6%B3%8A%E8%8D%92%E9%87%8E%E5%8C%BA&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.TankLakes_ZH-CN6402368934_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-27.jpg)
 
 
 
