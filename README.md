@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 庆祝智慧！ - 2025-10-05
+![庆祝智慧！](https://cn.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 中欧森林里的鬼鸮 (© Ondrej Prosicky/Alamy)
+> [了解更多](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E6%95%99%E5%B8%88%E6%97%A5&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-05.jpg)
+
+
+
 ## 使命必达 - 2025-10-04
 ![使命必达](https://cn.bing.com/th?id=OHR.DragonEndeavour_ZH-CN8160066040_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E8%B1%AA%E6%BB%95%E9%95%87%E8%8D%B7%E5%85%B0&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-29.jpg)
-
-
-
-## 品味皮恩扎 - 2025-09-28
-![品味皮恩扎](https://cn.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 托斯卡纳的皮恩扎镇, 意大利 (© zpagistock/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E7%9A%AE%E6%81%A9%E6%89%8E&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.PienzaItaly_ZH-CN6564335348_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-28.jpg)
 
 
 
