@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 千里共婵娟 - 2025-10-06
+![千里共婵娟](https://cn.bing.com/th?id=OHR.AnshunBridge_ZH-CN8392458102_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 安顺桥中秋灯展，成都，中国 (© Philippe LEJEANVRE/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E4%B8%AD%E7%A7%8B%E8%8A%82&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.AnshunBridge_ZH-CN8392458102_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-06.jpg)
+
+
+
 ## 庆祝智慧！ - 2025-10-05
 ![庆祝智慧！](https://cn.bing.com/th?id=OHR.TeacherOwl_ZH-CN8289875605_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E8%80%83%E6%8B%89&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.EucalyptusKoala_ZH-CN6942451940_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-30.jpg)
-
-
-
-## 彩虹骑行与宁静氛围 - 2025-09-29
-![彩虹骑行与宁静氛围](https://cn.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 豪滕镇的彩虹屋, 荷兰 (© George Pachantouris/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E8%B1%AA%E6%BB%95%E9%95%87%E8%8D%B7%E5%85%B0&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.HoutenHouses_ZH-CN6776452438_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/09/2025-09-29.jpg)
 
 
 
