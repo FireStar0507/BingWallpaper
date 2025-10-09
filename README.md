@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 宇宙在绽放 - 2025-10-09
+![宇宙在绽放](https://cn.bing.com/th?id=OHR.WebbPillars_ZH-CN9054137596_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> ‌詹姆斯·韦伯太空望远镜观测的创生之柱 (© NASA)
+> [了解更多](https://www.bing.com/search?q=%E5%88%9B%E7%94%9F%E4%B9%8B%E6%9F%B1&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.WebbPillars_ZH-CN9054137596_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-09.jpg)
+
+
+
 ## 动态伪装 - 2025-10-08
 ![动态伪装](https://cn.bing.com/th?id=OHR.OctopusCyanea_ZH-CN8948609460_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%96%AF%E5%87%AF%E5%B2%9B&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.SkyeHeather_ZH-CN2820283990_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-03.jpg)
-
-
-
-## 法定自然区 - 2025-10-02
-![法定自然区](https://cn.bing.com/th?id=OHR.OxbowBend_ZH-CN7211791969_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 蛇河上的牛轭湖, 大提顿国家公园, 怀俄明州, 美国 (© DanitaDelimont.com/AWL Images/SuperStock)
-> [了解更多](https://www.bing.com/search?q=%E5%9B%BD%E5%AE%B6%E9%A3%8E%E6%99%AF%E4%B8%8E%E8%87%AA%E7%84%B6%E6%B2%B3%E6%B5%81%E4%BD%93%E7%B3%BB&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.OxbowBend_ZH-CN7211791969_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-02.jpg)
 
 
 
