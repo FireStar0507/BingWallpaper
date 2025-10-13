@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 水声低语 - 2025-10-13
+![水声低语](https://cn.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 温巴赫峡谷瀑布，巴伐利亚州，德国 (© EyeEm Mobile GmbH/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E6%B8%A9%E5%B7%B4%E8%B5%AB%E5%B3%A1%E8%B0%B7&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-13.jpg)
+
+
+
 ## 爱上萨拉纳克 - 2025-10-12
 ![爱上萨拉纳克](https://cn.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%A7%91%E7%BD%97%E6%8B%89%E5%A4%9A%E5%B7%9E&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.RidgwayAspens_ZH-CN8735375502_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-07.jpg)
-
-
-
-## 千里共婵娟 - 2025-10-06
-![千里共婵娟](https://cn.bing.com/th?id=OHR.AnshunBridge_ZH-CN8392458102_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 安顺桥中秋灯展，成都，中国 (© Philippe LEJEANVRE/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E4%B8%AD%E7%A7%8B%E8%8A%82&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.AnshunBridge_ZH-CN8392458102_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-06.jpg)
 
 
 
