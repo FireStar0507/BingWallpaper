@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 幽灵之猫 - 2025-10-16
+![幽灵之猫](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 欧亚猞猁，西伯利亚 (© Mario Plechaty Photograph/Shutterstock)
+> [了解更多](https://www.bing.com/search?q=%E6%AC%A7%E4%BA%9A%E7%8C%9E%E7%8C%81&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-16.jpg)
+
+
+
 ## 孢子奇遇记 - 2025-10-15
 ![孢子奇遇记](https://cn.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%8E%9B%E7%8E%9B%E5%8A%AA%E5%8D%A1%E7%BE%A4%E5%B2%9B&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-10.jpg)
-
-
-
-## 宇宙在绽放 - 2025-10-09
-![宇宙在绽放](https://cn.bing.com/th?id=OHR.WebbPillars_ZH-CN9054137596_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> ‌詹姆斯·韦伯太空望远镜观测的创生之柱 (© NASA)
-> [了解更多](https://www.bing.com/search?q=%E5%88%9B%E7%94%9F%E4%B9%8B%E6%9F%B1&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.WebbPillars_ZH-CN9054137596_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-09.jpg)
 
 
 
