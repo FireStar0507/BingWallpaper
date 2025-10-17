@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 爱上密歇根 - 2025-10-17
+![爱上密歇根](https://cn.bing.com/th?id=OHR.RockRiverFalls_ZH-CN6532185546_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 罗克河瀑布，上半岛，密歇根州，美国 (© Matt Anderson Photography/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E5%AF%86%E6%AD%87%E6%A0%B9%E5%B7%9E%E7%BD%97%E5%85%8B%E6%B2%B3%E8%8D%92%E9%87%8E&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.RockRiverFalls_ZH-CN6532185546_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-17.jpg)
+
+
+
 ## 幽灵之猫 - 2025-10-16
 ![幽灵之猫](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E5%80%99%E9%B8%9F%E6%97%A5&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.WoodDuckHen_ZH-CN9558916773_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-11.jpg)
-
-
-
-## 思绪之礁 - 2025-10-10
-![思绪之礁](https://cn.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 莫努里基岛周边的珊瑚礁，玛玛努卡群岛，斐济 (© David Wall/SuperStock)
-> [了解更多](https://www.bing.com/search?q=%E7%8E%9B%E7%8E%9B%E5%8A%AA%E5%8D%A1%E7%BE%A4%E5%B2%9B&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.MonurikiFiji_ZH-CN9178115886_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-10.jpg)
 
 
 
