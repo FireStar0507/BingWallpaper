@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 痴迷科学 - 2025-10-19
+![痴迷科学](https://cn.bing.com/th?id=OHR.AppleHarvest_ZH-CN7317228007_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 即将收获的苹果，明尼苏达州，美国 (© Tammi Mild/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E6%94%B6%E8%8E%B7%E8%8B%B9%E6%9E%9C%E7%9A%84%E5%AD%A3%E8%8A%82&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.AppleHarvest_ZH-CN7317228007_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-19.jpg)
+
+
+
 ## 那座铭记往昔的山丘 - 2025-10-18
 ![那座铭记往昔的山丘](https://cn.bing.com/th?id=OHR.SilburyHill_ZH-CN6666447580_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%B8%A9%E5%B7%B4%E8%B5%AB%E5%B3%A1%E8%B0%B7&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.HinterseeWaterfall_ZH-CN0432994081_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-13.jpg)
-
-
-
-## 爱上萨拉纳克 - 2025-10-12
-![爱上萨拉纳克](https://cn.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 萨拉纳克湖村，阿迪朗达克山脉，纽约州，美国 (© DenisTangneyJr/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E8%90%A8%E6%8B%89%E7%BA%B3%E5%85%8B%E6%B9%96%E6%9D%91&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.SaranacLake_ZH-CN0224689397_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-12.jpg)
 
 
 
