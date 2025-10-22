@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 刻在石头上 - 2025-10-22
+![刻在石头上](https://cn.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 贝洛格拉齐克石林，保加利亚 (© EvaL Miko/Shutterstock)
+> [了解更多](https://www.bing.com/search?q=%E8%B4%9D%E6%B4%9B%E6%A0%BC%E6%8B%89%E9%BD%90%E5%85%8B%E7%9F%B3%E6%9E%97&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-22.jpg)
+
+
+
 ## 鸟喙的故事 - 2025-10-21
 ![鸟喙的故事](https://cn.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%AC%A7%E4%BA%9A%E7%8C%9E%E7%8C%81&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-16.jpg)
-
-
-
-## 孢子奇遇记 - 2025-10-15
-![孢子奇遇记](https://cn.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 紫蜡蘑，西贝克，华盛顿州，美国 (© Danita Delimont/Shutterstock)
-> [了解更多](https://www.bing.com/search?q=%E7%B4%AB%E8%9C%A1%E8%98%91&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.AmethystLaccaria_ZH-CN0643667280_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-15.jpg)
 
 
 
