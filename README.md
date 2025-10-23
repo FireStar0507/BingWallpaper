@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 雪中深情 - 2025-10-23
+![雪中深情](https://cn.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 雪豹和她的幼崽, 斯皮提谷, 寒冷沙漠生物圈保护区, 印度 (© Oriol Alamany/naturepl.com)
+> [了解更多](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E9%9B%AA%E8%B1%B9%E6%97%A5&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-23.jpg)
+
+
+
 ## 刻在石头上 - 2025-10-22
 ![刻在石头上](https://cn.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%AF%86%E6%AD%87%E6%A0%B9%E5%B7%9E%E7%BD%97%E5%85%8B%E6%B2%B3%E8%8D%92%E9%87%8E&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.RockRiverFalls_ZH-CN6532185546_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-17.jpg)
-
-
-
-## 幽灵之猫 - 2025-10-16
-![幽灵之猫](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 欧亚猞猁，西伯利亚 (© Mario Plechaty Photograph/Shutterstock)
-> [了解更多](https://www.bing.com/search?q=%E6%AC%A7%E4%BA%9A%E7%8C%9E%E7%8C%81&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.SiberianLynx_ZH-CN0749166653_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-16.jpg)
 
 
 
