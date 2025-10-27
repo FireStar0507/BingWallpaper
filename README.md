@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 千年秘境 - 2025-10-27
+![千年秘境](https://cn.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 被胡杨树围绕着的湖, 金塔县, 酒泉, 甘肃, 中国 (© Feng Wei Photography/Getty images)
+> [了解更多](https://www.bing.com/search?q=%E8%83%A1%E6%9D%A8%E6%A0%91&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-27.jpg)
+
+
+
 ## 南瓜日，今日登场！ - 2025-10-26
 ![南瓜日，今日登场！](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%8E%9A%E5%98%B4%E5%B7%A8%E5%98%B4%E9%B8%9F&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.ToucanForest_ZH-CN0072036253_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-21.jpg)
-
-
-
-## 慢节奏的生活 - 2025-10-20
-![慢节奏的生活](https://cn.bing.com/th?id=OHR.HoffmansSloth_ZH-CN7563408641_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 霍氏树懒，厄瓜多尔 (© Murray Cooper/Minden Pictures)
-> [了解更多](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E6%A0%91%E6%87%92%E6%97%A5&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.HoffmansSloth_ZH-CN7563408641_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-20.jpg)
 
 
 
