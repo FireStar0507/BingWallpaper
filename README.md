@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 时光扎根 - 2025-10-29
+![时光扎根](https://cn.bing.com/th?id=OHR.FanalForest_ZH-CN2203572101_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 法纳尔森林里的古老月桂树，马德拉群岛，葡萄牙 (© Lukas Jonaitis/Shutterstock)
+> [了解更多](https://www.bing.com/search?q=%E8%91%A1%E8%90%84%E7%89%99%E9%A9%AC%E5%BE%B7%E6%8B%89%E7%BE%A4%E5%B2%9B&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.FanalForest_ZH-CN2203572101_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-29.jpg)
+
+
+
 ## 通往石之奇境的大门 - 2025-10-28
 ![通往石之奇境的大门](https://cn.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E9%9B%AA%E8%B1%B9%E6%97%A5&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-23.jpg)
-
-
-
-## 刻在石头上 - 2025-10-22
-![刻在石头上](https://cn.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 贝洛格拉齐克石林，保加利亚 (© EvaL Miko/Shutterstock)
-> [了解更多](https://www.bing.com/search?q=%E8%B4%9D%E6%B4%9B%E6%A0%BC%E6%8B%89%E9%BD%90%E5%85%8B%E7%9F%B3%E6%9E%97&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.BulgariaRocks_ZH-CN0234903972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-22.jpg)
 
 
 
