@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 蹄声、色彩与传承 - 2025-10-30
+![蹄声、色彩与传承](https://cn.bing.com/th?id=OHR.PushkarFair_ZH-CN2069143641_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 杰伊瑟尔梅尔的骆驼, 拉贾斯坦邦, 印度 (© f9photos/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E9%AA%86%E9%A9%BC&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.PushkarFair_ZH-CN2069143641_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-30.jpg)
+
+
+
 ## 时光扎根 - 2025-10-29
 ![时光扎根](https://cn.bing.com/th?id=OHR.FanalForest_ZH-CN2203572101_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%8E%9B%E4%B8%BD%E7%9A%87%E5%90%8E%E5%8F%B7&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-24.jpg)
-
-
-
-## 雪中深情 - 2025-10-23
-![雪中深情](https://cn.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 雪豹和她的幼崽, 斯皮提谷, 寒冷沙漠生物圈保护区, 印度 (© Oriol Alamany/naturepl.com)
-> [了解更多](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E9%9B%AA%E8%B1%B9%E6%97%A5&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.SnowLeopard_ZH-CN6644701381_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-23.jpg)
 
 
 
