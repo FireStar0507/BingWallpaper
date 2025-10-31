@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 在万圣节的魔咒之下 - 2025-10-31
+![在万圣节的魔咒之下](https://cn.bing.com/th?id=OHR.BranCastle_ZH-CN3879660917_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 布兰城堡入口, 布拉索夫, 罗马尼亚 (© blue sky in my pocket/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E5%B8%83%E5%85%B0%E5%9F%8E%E5%A0%A1&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.BranCastle_ZH-CN3879660917_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-31.jpg)
+
+
+
 ## 蹄声、色彩与传承 - 2025-10-30
 ![蹄声、色彩与传承](https://cn.bing.com/th?id=OHR.PushkarFair_ZH-CN2069143641_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%B2%BC%E6%B3%BD%E7%94%9F%E6%80%81%E7%B3%BB%E7%BB%9F&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.MartimoaapaFinland_ZH-CN1066271356_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-25.jpg)
-
-
-
-## 从“灰色幽灵”到幽灵传说 - 2025-10-24
-![从“灰色幽灵”到幽灵传说](https://cn.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 玛丽皇后号邮轮的夜景, 长滩, 加利福尼亚州, 美国 (© Kit Leong/Shutterstock)
-> [了解更多](https://www.bing.com/search?q=%E7%8E%9B%E4%B8%BD%E7%9A%87%E5%90%8E%E5%8F%B7&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.QueenMary_ZH-CN0468294074_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-24.jpg)
 
 
 
