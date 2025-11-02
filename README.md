@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 竹林吐纳清气，枫叶绚烂如火 - 2025-11-02
+![竹林吐纳清气，枫叶绚烂如火](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 岚山缤纷的枫叶与竹林, 京都, 日本 (© DoctorEgg/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E4%BA%AC%E9%83%BD%E5%B2%9A%E5%B1%B1&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-02.jpg)
+
+
+
 ## 古老血脉的兽群 - 2025-11-01
 ![古老血脉的兽群](https://cn.bing.com/th?id=OHR.BisonSprings_ZH-CN4419733534_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E8%83%A1%E6%9D%A8%E6%A0%91&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.AutumnColorY25_ZH-CN1551135398_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-27.jpg)
-
-
-
-## 南瓜日，今日登场！ - 2025-10-26
-![南瓜日，今日登场！](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 北卡罗来纳州的南瓜农场, 美国 (© Matthew H Irvin/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%8D%97%E7%93%9C&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.PumpkinFarm_ZH-CN1232784365_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-26.jpg)
 
 
 
