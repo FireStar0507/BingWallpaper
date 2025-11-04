@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 小心空隙，桥面将开启！ - 2025-11-04
+![小心空隙，桥面将开启！](https://cn.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 塔桥, 伦敦, 英格兰 (© Nick Brundle Photography/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E4%BC%A6%E6%95%A6%E5%A1%94%E6%A1%A5&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-04.jpg)
+
+
+
 ## 随波轻舞 - 2025-11-03
 ![随波轻舞](https://cn.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E8%91%A1%E8%90%84%E7%89%99%E9%A9%AC%E5%BE%B7%E6%8B%89%E7%BE%A4%E5%B2%9B&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.FanalForest_ZH-CN2203572101_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-29.jpg)
-
-
-
-## 通往石之奇境的大门 - 2025-10-28
-![通往石之奇境的大门](https://cn.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 安德尔施帕赫-特普利采岩石林的哥特式拱门, 捷克 (© Kseniya_Milner/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%93%A5%E7%89%B9%E5%BC%8F%E6%8B%B1%E9%97%A8&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.TepliceRocks_ZH-CN1785316311_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/10/2025-10-28.jpg)
 
 
 
