@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 从前有一颗星星 - 2025-11-09
+![从前有一颗星星](https://cn.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 礁湖星云中的星际云，由哈勃太空望远镜拍摄 (© ESA/NASA)
+> [了解更多](https://www.bing.com/search?q=%E7%A4%81%E6%B9%96%E6%98%9F%E4%BA%91&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-09.jpg)
+
+
+
 ## 班登的明星岩石 - 2025-11-08
 ![班登的明星岩石](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%B0%B4%E6%AF%8D&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.MexicoJelly_ZH-CN5266285518_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-03.jpg)
-
-
-
-## 竹林吐纳清气，枫叶绚烂如火 - 2025-11-02
-![竹林吐纳清气，枫叶绚烂如火](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 岚山缤纷的枫叶与竹林, 京都, 日本 (© DoctorEgg/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E4%BA%AC%E9%83%BD%E5%B2%9A%E5%B1%B1&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.KyotoMaple_ZH-CN4730358356_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-02.jpg)
 
 
 
