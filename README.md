@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 传奇之地 - 2025-11-11
+![传奇之地](https://cn.bing.com/th?id=OHR.ExternsteineSunset_ZH-CN4190155102_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 条顿堡森林的伊克斯坦岩石层，德国 (© Michael Sroka/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E6%9D%A1%E9%A1%BF%E5%A0%A1%E6%9E%97%E5%B1%B1&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.ExternsteineSunset_ZH-CN4190155102_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-11.jpg)
+
+
+
 ## 草原之下的生命 - 2025-11-10
 ![草原之下的生命](https://cn.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E8%A5%BF%E7%8F%AD%E7%89%99%E8%90%A8%E6%8B%89%E6%88%88%E8%90%A8&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.MoncayoAutumn_ZH-CN5187959516_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-05.jpg)
-
-
-
-## 小心空隙，桥面将开启！ - 2025-11-04
-![小心空隙，桥面将开启！](https://cn.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 塔桥, 伦敦, 英格兰 (© Nick Brundle Photography/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E4%BC%A6%E6%95%A6%E5%A1%94%E6%A1%A5&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.TowerBridgeUK_ZH-CN1846533186_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-04.jpg)
 
 
 
