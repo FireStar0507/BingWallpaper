@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 条条大路通罗马 - 2025-11-12
+![条条大路通罗马](https://cn.bing.com/th?id=OHR.ColosseumRome_ZH-CN4305271578_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 斗兽场鸟瞰图，罗马，意大利 (© Nico De Pasquale Photography/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E7%BD%97%E9%A9%AC%E6%96%97%E5%85%BD%E5%9C%BA&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.ColosseumRome_ZH-CN4305271578_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-12.jpg)
+
+
+
 ## 传奇之地 - 2025-11-11
 ![传奇之地](https://cn.bing.com/th?id=OHR.ExternsteineSunset_ZH-CN4190155102_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%B8%85%E8%BF%88%E7%81%AF%E4%BC%9A&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.LanternsThailand_ZH-CN3419382923_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-06.jpg)
-
-
-
-## 秋天来了，你开心吗？ - 2025-11-05
-![秋天来了，你开心吗？](https://cn.bing.com/th?id=OHR.MoncayoAutumn_ZH-CN5187959516_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 佩尼亚罗亚山毛榉森林, 蒙卡约自然公园, 萨拉戈萨, 阿拉贡, 西班牙 (© David Santiago Garcia/DEEPOL by plainpicture)
-> [了解更多](https://www.bing.com/search?q=%E8%A5%BF%E7%8F%AD%E7%89%99%E8%90%A8%E6%8B%89%E6%88%88%E8%90%A8&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.MoncayoAutumn_ZH-CN5187959516_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-05.jpg)
 
 
 
