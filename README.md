@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 快节奏时代，别忘了慢下来 - 2025-11-14
+![快节奏时代，别忘了慢下来](https://cn.bing.com/th?id=OHR.ManateeBaby_ZH-CN7805040281_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 海牛妈妈和幼崽，水晶河，佛罗里达州，美国 (© Gregory Sweeney/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E6%B5%B7%E7%89%9B&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.ManateeBaby_ZH-CN7805040281_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-14.jpg)
+
+
+
 ## 星光下的颤动之树 - 2025-11-13
 ![星光下的颤动之树](https://cn.bing.com/th?id=OHR.AloeDichotoma_ZH-CN4432972312_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E4%BF%84%E5%8B%92%E5%86%88%E5%B7%9E%E7%8F%AD%E7%99%BB&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-08.jpg)
-
-
-
-## 魅力十足的巨型动物 - 2025-11-07
-![魅力十足的巨型动物](https://cn.bing.com/th?id=OHR.WillowBear_ZH-CN3501489210_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 丘吉尔的北极熊，曼尼托巴省，加拿大 (© karen crewe/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%8C%97%E6%9E%81%E7%86%8A&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.WillowBear_ZH-CN3501489210_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-07.jpg)
 
 
 
