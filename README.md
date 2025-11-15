@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 像日光那样“弯道飞驰” - 2025-11-15
+![像日光那样“弯道飞驰”](https://cn.bing.com/th?id=OHR.IrohazakaAutumn_ZH-CN8146412245_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 秋天的伊吕波坂，日光市，栃木县，日本 (© oneinchpunch/Shutterstock)
+> [了解更多](https://www.bing.com/search?q=%E6%A0%83%E6%9C%A8%E5%8E%BF%E6%97%A5%E5%85%89%E5%B8%82&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.IrohazakaAutumn_ZH-CN8146412245_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-15.jpg)
+
+
+
 ## 快节奏时代，别忘了慢下来 - 2025-11-14
 ![快节奏时代，别忘了慢下来](https://cn.bing.com/th?id=OHR.ManateeBaby_ZH-CN7805040281_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%A4%81%E6%B9%96%E6%98%9F%E4%BA%91&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-09.jpg)
-
-
-
-## 班登的明星岩石 - 2025-11-08
-![班登的明星岩石](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 班登海滩的海蚀柱，俄勒冈州，美国 (© Grant Ordelheide/TANDEM Stills + Motion)
-> [了解更多](https://www.bing.com/search?q=%E4%BF%84%E5%8B%92%E5%86%88%E5%B7%9E%E7%8F%AD%E7%99%BB&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.BandonBeach_ZH-CN3684356649_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-08.jpg)
 
 
 
