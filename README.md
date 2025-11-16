@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 承载过往的篇章 - 2025-11-16
+![承载过往的篇章](https://cn.bing.com/th?id=OHR.LyonTraboules_ZH-CN8476826325_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 里昂的一条穿廊，法国 (© TPopova/Getty Images) 法国
+> [了解更多](https://www.bing.com/search?q=%E9%87%8C%E6%98%82%E7%9A%84%E7%A9%BF%E5%BB%8A&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.LyonTraboules_ZH-CN8476826325_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-16.jpg)
+
+
+
 ## 像日光那样“弯道飞驰” - 2025-11-15
 ![像日光那样“弯道飞驰”](https://cn.bing.com/th?id=OHR.IrohazakaAutumn_ZH-CN8146412245_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%8A%A3%E5%9C%B0%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.PrairieDogTown_ZH-CN3989288881_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-10.jpg)
-
-
-
-## 从前有一颗星星 - 2025-11-09
-![从前有一颗星星](https://cn.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 礁湖星云中的星际云，由哈勃太空望远镜拍摄 (© ESA/NASA)
-> [了解更多](https://www.bing.com/search?q=%E7%A4%81%E6%B9%96%E6%98%9F%E4%BA%91&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.LagoonNebula_ZH-CN3890147543_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-09.jpg)
 
 
 
