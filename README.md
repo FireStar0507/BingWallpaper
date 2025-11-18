@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 秋日里的羽翼明星 - 2025-11-18
+![秋日里的羽翼明星](https://cn.bing.com/th?id=OHR.AutumnMerganser_ZH-CN1320438449_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 雄性棕胁秋沙鸭，俄勒冈州，美国 (© Eric Vogt/TANDEM Stills + Motion)
+> [了解更多](https://www.bing.com/search?q=%E6%A3%95%E8%83%81%E7%A7%8B%E6%B2%99%E9%B8%AD&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.AutumnMerganser_ZH-CN1320438449_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-18.jpg)
+
+
+
 ## 小径在召唤 - 2025-11-17
 ![小径在召唤](https://cn.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%BD%97%E9%A9%AC%E6%96%97%E5%85%BD%E5%9C%BA&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.ColosseumRome_ZH-CN4305271578_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-12.jpg)
-
-
-
-## 传奇之地 - 2025-11-11
-![传奇之地](https://cn.bing.com/th?id=OHR.ExternsteineSunset_ZH-CN4190155102_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 条顿堡森林的伊克斯坦岩石层，德国 (© Michael Sroka/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E6%9D%A1%E9%A1%BF%E5%A0%A1%E6%9E%97%E5%B1%B1&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.ExternsteineSunset_ZH-CN4190155102_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-11.jpg)
 
 
 
