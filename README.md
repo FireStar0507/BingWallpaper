@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 石头与符号，诉说一个民族的故事 - 2025-11-19
+![石头与符号，诉说一个民族的故事](https://cn.bing.com/th?id=OHR.BudapestParliament_ZH-CN1607028780_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 匈牙利国会大厦，布达佩斯，匈牙利 (© Alexander Spatari/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E5%8C%88%E7%89%99%E5%88%A9%E5%9B%BD%E4%BC%9A%E5%A4%A7%E5%8E%A6&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.BudapestParliament_ZH-CN1607028780_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-19.jpg)
+
+
+
 ## 秋日里的羽翼明星 - 2025-11-18
 ![秋日里的羽翼明星](https://cn.bing.com/th?id=OHR.AutumnMerganser_ZH-CN1320438449_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%AE%AD%E8%A2%8B%E6%A0%91&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.AloeDichotoma_ZH-CN4432972312_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-13.jpg)
-
-
-
-## 条条大路通罗马 - 2025-11-12
-![条条大路通罗马](https://cn.bing.com/th?id=OHR.ColosseumRome_ZH-CN4305271578_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 斗兽场鸟瞰图，罗马，意大利 (© Nico De Pasquale Photography/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E7%BD%97%E9%A9%AC%E6%96%97%E5%85%BD%E5%9C%BA&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.ColosseumRome_ZH-CN4305271578_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-12.jpg)
 
 
 
