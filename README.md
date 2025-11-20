@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 颂扬保护与美 - 2025-11-20
+![颂扬保护与美](https://cn.bing.com/th?id=OHR.PondCave_ZH-CN2304770650_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 查帕达迪亚曼蒂纳国家公园，巴伊亚州，巴西 (© Marcio Dufranc/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E6%9F%A5%E5%B8%95%E8%BE%BE-%E8%BF%AA%E4%BA%9A%E6%9B%BC%E8%92%82%E9%82%A3%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.PondCave_ZH-CN2304770650_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-20.jpg)
+
+
+
 ## 石头与符号，诉说一个民族的故事 - 2025-11-19
 ![石头与符号，诉说一个民族的故事](https://cn.bing.com/th?id=OHR.BudapestParliament_ZH-CN1607028780_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%B5%B7%E7%89%9B&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.ManateeBaby_ZH-CN7805040281_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-14.jpg)
-
-
-
-## 星光下的颤动之树 - 2025-11-13
-![星光下的颤动之树](https://cn.bing.com/th?id=OHR.AloeDichotoma_ZH-CN4432972312_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 夜晚的箭袋树与银河，基特曼斯胡普，纳米比亚 (© Wim van den Heever/naturepl.com)
-> [了解更多](https://www.bing.com/search?q=%E7%AE%AD%E8%A2%8B%E6%A0%91&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.AloeDichotoma_ZH-CN4432972312_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-13.jpg)
 
 
 
