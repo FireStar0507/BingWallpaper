@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 带着“你好”的问候 - 2025-11-21
+![带着“你好”的问候](https://cn.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 罗伯特·摩西州立公园的港海豹, 长岛, 纽约, 美国 (© Vicki Jauron, Babylon and Beyond Photography/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E6%B8%AF%E6%B5%B7%E8%B1%B9&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-21.jpg)
+
+
+
 ## 颂扬保护与美 - 2025-11-20
 ![颂扬保护与美](https://cn.bing.com/th?id=OHR.PondCave_ZH-CN2304770650_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%A0%83%E6%9C%A8%E5%8E%BF%E6%97%A5%E5%85%89%E5%B8%82&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.IrohazakaAutumn_ZH-CN8146412245_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-15.jpg)
-
-
-
-## 快节奏时代，别忘了慢下来 - 2025-11-14
-![快节奏时代，别忘了慢下来](https://cn.bing.com/th?id=OHR.ManateeBaby_ZH-CN7805040281_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 海牛妈妈和幼崽，水晶河，佛罗里达州，美国 (© Gregory Sweeney/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E6%B5%B7%E7%89%9B&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.ManateeBaby_ZH-CN7805040281_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-14.jpg)
 
 
 
