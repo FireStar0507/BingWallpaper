@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 守护江河的佛像 - 2025-11-22
+![守护江河的佛像](https://cn.bing.com/th?id=OHR.LeshanBuddha_ZH-CN2804271540_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 乐山大佛, 四川, 中国 (© www.anotherdayattheoffice.org/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E4%B9%90%E5%B1%B1%E5%A4%A7%E4%BD%9B&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.LeshanBuddha_ZH-CN2804271540_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-22.jpg)
+
+
+
 ## 带着“你好”的问候 - 2025-11-21
 ![带着“你好”的问候](https://cn.bing.com/th?id=OHR.SealWaving_ZH-CN2467723602_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E9%87%8C%E6%98%82%E7%9A%84%E7%A9%BF%E5%BB%8A&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.LyonTraboules_ZH-CN8476826325_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-16.jpg)
-
-
-
-## 像日光那样“弯道飞驰” - 2025-11-15
-![像日光那样“弯道飞驰”](https://cn.bing.com/th?id=OHR.IrohazakaAutumn_ZH-CN8146412245_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 秋天的伊吕波坂，日光市，栃木县，日本 (© oneinchpunch/Shutterstock)
-> [了解更多](https://www.bing.com/search?q=%E6%A0%83%E6%9C%A8%E5%8E%BF%E6%97%A5%E5%85%89%E5%B8%82&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.IrohazakaAutumn_ZH-CN8146412245_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-15.jpg)
 
 
 
