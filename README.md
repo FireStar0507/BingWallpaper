@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 岩石中的秘密 - 2025-11-24
+![岩石中的秘密](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 瓜廖尔堡, ‌中央邦, 印度 (© ImagesofIndia/Shutterstock)
+> [了解更多](https://www.bing.com/search?q=%E7%93%9C%E5%BB%96%E5%B0%94%E5%A0%A1%E5%8D%B0%E5%BA%A6%E4%B8%AD%E5%A4%AE%E9%82%A6&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-24.jpg)
+
+
+
 ## 大自然的秘密代码 - 2025-11-23
 ![大自然的秘密代码](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%A3%95%E8%83%81%E7%A7%8B%E6%B2%99%E9%B8%AD&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.AutumnMerganser_ZH-CN1320438449_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-18.jpg)
-
-
-
-## 小径在召唤 - 2025-11-17
-![小径在召唤](https://cn.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 谢南多厄国家公园的秋色，弗吉尼亚州，美国 (© Michael Ver Sprill/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E8%B0%A2%E5%8D%97%E5%A4%9A%E5%8E%84%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.ShenandoahTrail_ZH-CN8626326726_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-17.jpg)
 
 
 
