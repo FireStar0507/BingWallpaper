@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 爱情、幸运与硬币 - 2025-11-25
+![爱情、幸运与硬币](https://cn.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 罗马的特雷维喷泉, 意大利 (© Nico De Pasquale Photography/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E7%89%B9%E9%9B%B7%E7%BB%B4%E5%96%B7%E6%B3%89&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-25.jpg)
+
+
+
 ## 岩石中的秘密 - 2025-11-24
 ![岩石中的秘密](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%8C%88%E7%89%99%E5%88%A9%E5%9B%BD%E4%BC%9A%E5%A4%A7%E5%8E%A6&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.BudapestParliament_ZH-CN1607028780_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-19.jpg)
-
-
-
-## 秋日里的羽翼明星 - 2025-11-18
-![秋日里的羽翼明星](https://cn.bing.com/th?id=OHR.AutumnMerganser_ZH-CN1320438449_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 雄性棕胁秋沙鸭，俄勒冈州，美国 (© Eric Vogt/TANDEM Stills + Motion)
-> [了解更多](https://www.bing.com/search?q=%E6%A3%95%E8%83%81%E7%A7%8B%E6%B2%99%E9%B8%AD&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.AutumnMerganser_ZH-CN1320438449_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-18.jpg)
 
 
 
