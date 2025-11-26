@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 让树叶诉说历史 - 2025-11-26
+![让树叶诉说历史](https://cn.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 特拉蒙塔纳山脉的橄榄园, 马略卡岛, 巴利阿里群岛, 西班牙 (© cinoby/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E6%A9%84%E6%A6%84%E6%A0%91&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-26.jpg)
+
+
+
 ## 爱情、幸运与硬币 - 2025-11-25
 ![爱情、幸运与硬币](https://cn.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%9F%A5%E5%B8%95%E8%BE%BE-%E8%BF%AA%E4%BA%9A%E6%9B%BC%E8%92%82%E9%82%A3%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.PondCave_ZH-CN2304770650_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-20.jpg)
-
-
-
-## 石头与符号，诉说一个民族的故事 - 2025-11-19
-![石头与符号，诉说一个民族的故事](https://cn.bing.com/th?id=OHR.BudapestParliament_ZH-CN1607028780_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 匈牙利国会大厦，布达佩斯，匈牙利 (© Alexander Spatari/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%8C%88%E7%89%99%E5%88%A9%E5%9B%BD%E4%BC%9A%E5%A4%A7%E5%8E%A6&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.BudapestParliament_ZH-CN1607028780_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-19.jpg)
 
 
 
