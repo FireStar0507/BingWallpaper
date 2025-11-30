@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 一路闪耀 - 2025-11-30
+![一路闪耀](https://cn.bing.com/th?id=OHR.LeipzigMarket_ZH-CN1517513161_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 莱比锡圣诞集市, 德国 (© Krzysztof Baranowski/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E8%8E%B1%E6%AF%94%E9%94%A1&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.LeipzigMarket_ZH-CN1517513161_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-30.jpg)
+
+
+
 ## 哎呀，好冷啊！ - 2025-11-29
 ![哎呀，好冷啊！](https://cn.bing.com/th?id=OHR.DeerVeluwe_ZH-CN1438758687_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%93%9C%E5%BB%96%E5%B0%94%E5%A0%A1%E5%8D%B0%E5%BA%A6%E4%B8%AD%E5%A4%AE%E9%82%A6&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-24.jpg)
-
-
-
-## 大自然的秘密代码 - 2025-11-23
-![大自然的秘密代码](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 马达加斯加菊石化石 (© ThomasLENNE/Shutterstock)
-> [了解更多](https://www.bing.com/search?q=%E6%96%90%E6%B3%A2%E9%82%A3%E5%A5%91%E6%95%B0%E5%88%97&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.MadgascarAmmonite_ZH-CN6497276091_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-23.jpg)
 
 
 
