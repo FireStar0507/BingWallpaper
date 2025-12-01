@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 冰雪凝息之处 - 2025-12-01
+![冰雪凝息之处](https://cn.bing.com/th?id=OHR.AntarcticArch_ZH-CN1622701432_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 冰山上天然形成的拱门, 南极洲 (© Gabrielle/Adobe Stock)
+> [了解更多](https://www.bing.com/search?q=%E5%8D%97%E6%9E%81%E6%97%A5&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.AntarcticArch_ZH-CN1622701432_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-01.jpg)
+
+
+
 ## 一路闪耀 - 2025-11-30
 ![一路闪耀](https://cn.bing.com/th?id=OHR.LeipzigMarket_ZH-CN1517513161_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%89%B9%E9%9B%B7%E7%BB%B4%E5%96%B7%E6%B3%89&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-25.jpg)
-
-
-
-## 岩石中的秘密 - 2025-11-24
-![岩石中的秘密](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 瓜廖尔堡, ‌中央邦, 印度 (© ImagesofIndia/Shutterstock)
-> [了解更多](https://www.bing.com/search?q=%E7%93%9C%E5%BB%96%E5%B0%94%E5%A0%A1%E5%8D%B0%E5%BA%A6%E4%B8%AD%E5%A4%AE%E9%82%A6&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.GwailorFort_ZH-CN6731607002_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-24.jpg)
 
 
 
