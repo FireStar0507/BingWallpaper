@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 一景胜千言 - 2025-12-02
+![一景胜千言](https://cn.bing.com/th?id=OHR.WillowLake_ZH-CN9798614021_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 柳树湖与布莱克本山, 兰格尔－圣伊利亚斯国家公园暨保护区, 阿拉斯加州, 美国 (© Patrick J. Endres/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E5%9C%A3%E4%BC%8A%E5%88%A9%E4%BA%9A%E6%96%AF%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.WillowLake_ZH-CN9798614021_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-02.jpg)
+
+
+
 ## 冰雪凝息之处 - 2025-12-01
 ![冰雪凝息之处](https://cn.bing.com/th?id=OHR.AntarcticArch_ZH-CN1622701432_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%A9%84%E6%A6%84%E6%A0%91&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-26.jpg)
-
-
-
-## 爱情、幸运与硬币 - 2025-11-25
-![爱情、幸运与硬币](https://cn.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 罗马的特雷维喷泉, 意大利 (© Nico De Pasquale Photography/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E7%89%B9%E9%9B%B7%E7%BB%B4%E5%96%B7%E6%B3%89&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.TreviFountain_ZH-CN6892299520_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-25.jpg)
 
 
 
