@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 曙光中的鹤影 - 2025-12-03
+![曙光中的鹤影](https://cn.bing.com/th?id=OHR.BosqueCranes_ZH-CN1838488224_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 日出时的沙丘鹤, ‌阿帕奇森林国家野生动物保护区, 新墨西哥州, 美国 (© Jack Dykinga/Minden Pictures)
+> [了解更多](https://www.bing.com/search?q=%E6%B2%99%E4%B8%98%E9%B9%A4&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.BosqueCranes_ZH-CN1838488224_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-03.jpg)
+
+
+
 ## 一景胜千言 - 2025-12-02
 ![一景胜千言](https://cn.bing.com/th?id=OHR.WillowLake_ZH-CN9798614021_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E4%BC%8A%E6%96%AF%E7%89%B9%E6%9C%AC%E7%A0%81%E5%A4%B4&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.PierOfEastbourne2025_ZH-CN7178301269_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-27.jpg)
-
-
-
-## 让树叶诉说历史 - 2025-11-26
-![让树叶诉说历史](https://cn.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 特拉蒙塔纳山脉的橄榄园, 马略卡岛, 巴利阿里群岛, 西班牙 (© cinoby/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E6%A9%84%E6%A6%84%E6%A0%91&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.OliveGrove_ZH-CN7054006944_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-26.jpg)
 
 
 
