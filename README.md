@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 绘制星图的城市 - 2025-12-05
+![绘制星图的城市](https://cn.bing.com/th?id=OHR.CopanRuins_ZH-CN2157795324_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 科潘的玛雅遗址，洪都拉斯 (© diegograndi/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E7%A7%91%E6%BD%98%E7%8E%9B%E9%9B%85%E9%81%97%E5%9D%80&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.CopanRuins_ZH-CN2157795324_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-05.jpg)
+
+
+
 ## 为生存而疾驰 - 2025-12-04
 ![为生存而疾驰](https://cn.bing.com/th?id=OHR.CheetahMound_ZH-CN1970221812_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%A2%B5%E9%AB%98%E5%9B%BD%E5%AE%B6%E6%A3%AE%E6%9E%97%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.DeerVeluwe_ZH-CN1438758687_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-29.jpg)
-
-
-
-## 白色回响 - 2025-11-28
-![白色回响](https://cn.bing.com/th?id=OHR.InvernoItalia_ZH-CN1329490862_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 瓦尔·布兰德特, 布雷西亚, 伦巴第大区, 意大利 (© ClickAlps/Alamy)
-> [了解更多](https://www.bing.com/search?q=%E6%84%8F%E5%A4%A7%E5%88%A9%E5%B8%83%E9%9B%B7%E8%A5%BF%E4%BA%9A&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.InvernoItalia_ZH-CN1329490862_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-28.jpg)
 
 
 
