@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 雪落下的声音 - 2025-12-07
+![雪落下的声音](https://cn.bing.com/th?id=OHR.TheGreatSnowY25_ZH-CN2448918230_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 雪中的故宫，中国北京 (© Ian.CuiYi/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E5%A4%A7%E9%9B%AA%E8%8A%82%E6%B0%94&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.TheGreatSnowY25_ZH-CN2448918230_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-07.jpg)
+
+
+
 ## 佛罗里达州的生命湿地 - 2025-12-06
 ![佛罗里达州的生命湿地](https://cn.bing.com/th?id=OHR.EvergladesSunrise_ZH-CN2298606730_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%8D%97%E6%9E%81%E6%97%A5&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.AntarcticArch_ZH-CN1622701432_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-01.jpg)
-
-
-
-## 一路闪耀 - 2025-11-30
-![一路闪耀](https://cn.bing.com/th?id=OHR.LeipzigMarket_ZH-CN1517513161_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 莱比锡圣诞集市, 德国 (© Krzysztof Baranowski/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E8%8E%B1%E6%AF%94%E9%94%A1&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.LeipzigMarket_ZH-CN1517513161_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/11/2025-11-30.jpg)
 
 
 
