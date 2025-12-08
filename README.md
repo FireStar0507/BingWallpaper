@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 一切安详，一切明亮 - 2025-12-08
+![一切安详，一切明亮](https://cn.bing.com/th?id=OHR.ComoChristmas_ZH-CN2565627033_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 多马索的建筑上的圣诞彩灯，科莫湖，意大利 (© Roberto Moiola/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E7%A7%91%E8%8E%AB%E6%B9%96&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.ComoChristmas_ZH-CN2565627033_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-08.jpg)
+
+
+
 ## 雪落下的声音 - 2025-12-07
 ![雪落下的声音](https://cn.bing.com/th?id=OHR.TheGreatSnowY25_ZH-CN2448918230_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%9C%A3%E4%BC%8A%E5%88%A9%E4%BA%9A%E6%96%AF%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.WillowLake_ZH-CN9798614021_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-02.jpg)
-
-
-
-## 冰雪凝息之处 - 2025-12-01
-![冰雪凝息之处](https://cn.bing.com/th?id=OHR.AntarcticArch_ZH-CN1622701432_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 冰山上天然形成的拱门, 南极洲 (© Gabrielle/Adobe Stock)
-> [了解更多](https://www.bing.com/search?q=%E5%8D%97%E6%9E%81%E6%97%A5&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.AntarcticArch_ZH-CN1622701432_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-01.jpg)
 
 
 
