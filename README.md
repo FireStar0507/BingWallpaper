@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 静谧水波，闪耀灯影 - 2025-12-15
+![静谧水波，闪耀灯影](https://cn.bing.com/th?id=OHR.AmsterdamLights_ZH-CN4288146509_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰 (© Amith Nag Photography/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E9%98%BF%E5%A7%86%E6%96%AF%E7%89%B9%E4%B8%B9%E8%BF%90%E6%B2%B3&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.AmsterdamLights_ZH-CN4288146509_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-15.jpg)
+
+
+
 ## 假日鸟类大比拼 - 2025-12-14
 ![假日鸟类大比拼](https://cn.bing.com/th?id=OHR.TuftedTitmouse_ZH-CN4154825372_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%8E%9F%E9%A9%BC&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.LlamaDay_ZH-CN2646855786_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-09.jpg)
-
-
-
-## 一切安详，一切明亮 - 2025-12-08
-![一切安详，一切明亮](https://cn.bing.com/th?id=OHR.ComoChristmas_ZH-CN2565627033_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 多马索的建筑上的圣诞彩灯，科莫湖，意大利 (© Roberto Moiola/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E7%A7%91%E8%8E%AB%E6%B9%96&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.ComoChristmas_ZH-CN2565627033_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-08.jpg)
 
 
 
