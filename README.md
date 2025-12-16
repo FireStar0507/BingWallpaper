@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 小帽子，大能量 - 2025-12-16
+![小帽子，大能量](https://cn.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 圣诞市场上的手工小矮人 (© Veronika Seppanen/Shutterstock)
+> [了解更多](https://www.bing.com/search?q=%E5%9C%A3%E8%AF%9E%E5%9C%B0%E7%B2%BE&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-16.jpg)
+
+
+
 ## 静谧水波，闪耀灯影 - 2025-12-15
 ![静谧水波，闪耀灯影](https://cn.bing.com/th?id=OHR.AmsterdamLights_ZH-CN4288146509_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%A7%91%E5%B0%94%E5%A4%9A%E7%93%A6%E6%B8%85%E7%9C%9F%E5%AF%BA%E5%A4%A7%E6%95%99%E5%A0%82&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.CordobaCathedral_ZH-CN4603063077_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-10.jpg)
-
-
-
-## 说“茄子”……或者“青草” - 2025-12-09
-![说“茄子”……或者“青草”](https://cn.bing.com/th?id=OHR.LlamaDay_ZH-CN2646855786_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 原驼，北角，瓦尔德斯半岛, 阿根廷 (© Sylvain Cordier/naturepl.com)
-> [了解更多](https://www.bing.com/search?q=%E5%8E%9F%E9%A9%BC&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.LlamaDay_ZH-CN2646855786_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-09.jpg)
 
 
 
