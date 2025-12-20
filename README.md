@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 闪烁的纸星星 - 2025-12-20
+![闪烁的纸星星](https://cn.bing.com/th?id=OHR.StarLanterns_ZH-CN5598071900_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 圣诞星形灯笼，德国 (© artas/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E6%91%A9%E6%8B%89%E7%BB%B4%E4%BA%9A%E4%B9%8B%E6%98%9F&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.StarLanterns_ZH-CN5598071900_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-20.jpg)
+
+
+
 ## 高山的悠久历史 - 2025-12-19
 ![高山的悠久历史](https://cn.bing.com/th?id=OHR.BormioItaly_ZH-CN5397313772_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%B0%87%E5%B1%B1%E9%9B%80&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.TuftedTitmouse_ZH-CN4154825372_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-14.jpg)
-
-
-
-## 冰封的倒影 - 2025-12-13
-![冰封的倒影](https://cn.bing.com/th?id=OHR.YosemiteWinter_ZH-CN3824387818_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 默塞德河, 优胜美地国家公园, 加利福尼亚, 美国 (© Ron and Patty Thomas/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E9%BB%98%E5%A1%9E%E5%BE%B7%E6%B2%B3&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.YosemiteWinter_ZH-CN3824387818_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-13.jpg)
 
 
 
