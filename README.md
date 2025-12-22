@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 历史与现代的交融 - 2025-12-22
+![历史与现代的交融](https://cn.bing.com/th?id=OHR.FrankfurtAlteBruecke_ZH-CN6621478221_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 法兰克福老桥，德国 (© diegograndi/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E6%B3%95%E5%85%B0%E5%85%8B%E7%A6%8F%E8%80%81%E6%A1%A5&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.FrankfurtAlteBruecke_ZH-CN6621478221_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-22.jpg)
+
+
+
 ## 美丽的雾凇景色 - 2025-12-21
 ![美丽的雾凇景色](https://cn.bing.com/th?id=OHR.WintersolsticeY25_ZH-CN6462419684_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%9C%A3%E8%AF%9E%E5%9C%B0%E7%B2%BE&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-16.jpg)
-
-
-
-## 静谧水波，闪耀灯影 - 2025-12-15
-![静谧水波，闪耀灯影](https://cn.bing.com/th?id=OHR.AmsterdamLights_ZH-CN4288146509_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 斯皮格尔运河上的灯光装饰, 阿姆斯特丹, 荷兰 (© Amith Nag Photography/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E9%98%BF%E5%A7%86%E6%96%AF%E7%89%B9%E4%B8%B9%E8%BF%90%E6%B2%B3&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.AmsterdamLights_ZH-CN4288146509_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-15.jpg)
 
 
 
