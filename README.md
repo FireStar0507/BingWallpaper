@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 当节日的魔法踩着蹄声而来 - 2025-12-23
+![当节日的魔法踩着蹄声而来](https://cn.bing.com/th?id=OHR.ReindeerFinland_ZH-CN6822163943_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 冬雪中的驯鹿，拉普兰德，芬兰 (© Roberto Moiola/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E9%A9%AF%E9%B9%BF&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.ReindeerFinland_ZH-CN6822163943_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-23.jpg)
+
+
+
 ## 历史与现代的交融 - 2025-12-22
 ![历史与现代的交融](https://cn.bing.com/th?id=OHR.FrankfurtAlteBruecke_ZH-CN6621478221_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%AC%A7%E4%BA%9A%E7%BA%A2%E6%9D%BE%E9%BC%A0&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.FrostySquirrel_ZH-CN4613360783_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-17.jpg)
-
-
-
-## 小帽子，大能量 - 2025-12-16
-![小帽子，大能量](https://cn.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 圣诞市场上的手工小矮人 (© Veronika Seppanen/Shutterstock)
-> [了解更多](https://www.bing.com/search?q=%E5%9C%A3%E8%AF%9E%E5%9C%B0%E7%B2%BE&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.ChristmasGnomes_ZH-CN4405839101_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-16.jpg)
 
 
 
