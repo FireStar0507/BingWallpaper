@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 仍存野性 - 2025-12-28
+![仍存野性](https://cn.bing.com/th?id=OHR.RuffedLemur_ZH-CN5636795490_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 马达加斯加的黑白环尾狐猴 (© Cyrielle Beaubois/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E9%BB%91%E7%99%BD%E7%8E%AF%E5%B0%BE%E7%8B%90%E7%8C%B4&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.RuffedLemur_ZH-CN5636795490_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-28.jpg)
+
+
+
 ## 冬之碎片 - 2025-12-27
 ![冬之碎片](https://cn.bing.com/th?id=OHR.SuperiorIceMN_ZH-CN5339027344_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%B3%95%E5%85%B0%E5%85%8B%E7%A6%8F%E8%80%81%E6%A1%A5&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.FrankfurtAlteBruecke_ZH-CN6621478221_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-22.jpg)
-
-
-
-## 美丽的雾凇景色 - 2025-12-21
-![美丽的雾凇景色](https://cn.bing.com/th?id=OHR.WintersolsticeY25_ZH-CN6462419684_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 美丽的雾凇景色，大庆市，黑龙江省，中国 (© Dashu Xinganling/shutterstock)
-> [了解更多](https://www.bing.com/search?q=%E5%86%AC%E8%87%B3&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.WintersolsticeY25_ZH-CN6462419684_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-21.jpg)
 
 
 
