@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 柏林，新年之桥 - 2025-12-31
+![柏林，新年之桥](https://cn.bing.com/th?id=OHR.GermanyNewYear_ZH-CN9155122755_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 除夕夜，奥伯鲍姆桥，柏林，德国 (© spreephoto.de/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E9%99%A4%E5%A4%95%E5%A4%9C&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.GermanyNewYear_ZH-CN9155122755_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-31.jpg)
+
+
+
 ## 新太阳的诞生 - 2025-12-30
 ![新太阳的诞生](https://cn.bing.com/th?id=OHR.SwedenSolstice_ZH-CN8975506700_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%9C%A3%E8%AF%9E%E8%8A%82&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.SantaGlobe_ZH-CN7032279153_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-25.jpg)
-
-
-
-## 流动的传统 - 2025-12-24
-![流动的传统](https://cn.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 巴伐利亚阿尔卑斯山脉的雪中教堂与圣诞树，德国 (© mauritius images GmbH/Alamy)
-> [了解更多](https://www.bing.com/search?q=%E5%B9%B3%E5%AE%89%E5%A4%9C&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.ElmauChapel_ZH-CN6919330333_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-24.jpg)
 
 
 
