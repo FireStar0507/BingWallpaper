@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 威尼斯的灵魂 - 2026-01-02
+![威尼斯的灵魂](https://cn.bing.com/th?id=OHR.VeniceView_ZH-CN3088407995_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 威尼斯鸟瞰图, 意大利 (© Clement Leonard/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E6%84%8F%E5%A4%A7%E5%88%A9%E5%A8%81%E5%B0%BC%E6%96%AF&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.VeniceView_ZH-CN3088407995_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-02.jpg)
+
+
+
 ## 伸个懒腰，迈向新年！ - 2026-01-01
 ![伸个懒腰，迈向新年！](https://cn.bing.com/th?id=OHR.NewYearFox_ZH-CN9312618796_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%98%8E%E5%B0%BC%E8%8B%8F%E8%BE%BE%E5%B7%9E%E8%8B%8F%E5%BF%85%E5%88%A9%E5%B0%94%E6%B9%96&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.SuperiorIceMN_ZH-CN5339027344_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-27.jpg)
-
-
-
-## 打破盒子的传统 - 2025-12-26
-![打破盒子的传统](https://cn.bing.com/th?id=OHR.WiltshireDawn_ZH-CN2887906329_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 索尔兹伯里大教堂，威尔特郡，英格兰 (© Julian Elliott Photography/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E8%8A%82%E7%A4%BC%E6%97%A5&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.WiltshireDawn_ZH-CN2887906329_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-26.jpg)
 
 
 
