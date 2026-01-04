@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 王者视野 - 2026-01-04
+![王者视野](https://cn.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 国王山, 楚加奇山脉, 阿拉斯加, 美国 (© Chris Moore - Exploring Light Photography/TANDEM Stills + Motion)
+> [了解更多](https://www.bing.com/search?q=%E6%A5%9A%E5%8A%A0%E5%A5%87%E5%B1%B1%E8%84%89&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-04.jpg)
+
+
+
 ## 传奇故事前的篇章 - 2026-01-03
 ![传奇故事前的篇章](https://cn.bing.com/th?id=OHR.LauterbrunnenValley_ZH-CN0118001217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%9C%9F%E8%80%B3%E5%85%B6%E9%98%BF%E5%B0%BC%E9%81%97%E5%9D%80&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.AniTurkey_ZH-CN5838141955_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-29.jpg)
-
-
-
-## 仍存野性 - 2025-12-28
-![仍存野性](https://cn.bing.com/th?id=OHR.RuffedLemur_ZH-CN5636795490_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 马达加斯加的黑白环尾狐猴 (© Cyrielle Beaubois/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E9%BB%91%E7%99%BD%E7%8E%AF%E5%B0%BE%E7%8B%90%E7%8C%B4&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.RuffedLemur_ZH-CN5636795490_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-28.jpg)
 
 
 
