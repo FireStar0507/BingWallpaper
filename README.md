@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 高角羚群紧急戒备 - 2026-01-05
+![高角羚群紧急戒备](https://cn.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 一群高角羚, 隆多洛齐野生动物保护区, 南非 (© Mint Images/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E9%AB%98%E8%A7%92%E7%BE%9A&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-05.jpg)
+
+
+
 ## 王者视野 - 2026-01-04
 ![王者视野](https://cn.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%8C%97%E5%8D%8A%E7%90%83%E7%9A%84%E5%86%AC%E5%AD%A3&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.SwedenSolstice_ZH-CN8975506700_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-30.jpg)
-
-
-
-## 一座比城市更悠久的教堂 - 2025-12-29
-![一座比城市更悠久的教堂](https://cn.bing.com/th?id=OHR.AniTurkey_ZH-CN5838141955_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 阿尼遗址的圣格雷戈里教堂，卡尔斯省，土耳其 (© Kenan Talas/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%9C%9F%E8%80%B3%E5%85%B6%E9%98%BF%E5%B0%BC%E9%81%97%E5%9D%80&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.AniTurkey_ZH-CN5838141955_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2025/12/2025-12-29.jpg)
 
 
 
