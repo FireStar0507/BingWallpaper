@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 废墟之上，椋鸟群舞 - 2026-01-08
+![废墟之上，椋鸟群舞](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_ZH-CN2775446092_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 椋鸟群在布莱顿西码头废墟上空盘旋, 英格兰 (© Philip Reeve/Photodisc/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E6%A4%8B%E9%B8%9F&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_ZH-CN2775446092_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-08.jpg)
+
+
+
 ## 古老岩石的传奇 - 2026-01-07
 ![古老岩石的传奇](https://cn.bing.com/th?id=OHR.OldRockArch_ZH-CN2061140260_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%84%8F%E5%A4%A7%E5%88%A9%E5%A8%81%E5%B0%BC%E6%96%AF&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.VeniceView_ZH-CN3088407995_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-02.jpg)
-
-
-
-## 伸个懒腰，迈向新年！ - 2026-01-01
-![伸个懒腰，迈向新年！](https://cn.bing.com/th?id=OHR.NewYearFox_ZH-CN9312618796_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 正在睡觉的北极狐 (© Chansak Joe/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%85%83%E6%97%A6&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.NewYearFox_ZH-CN9312618796_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-01.jpg)
 
 
 
