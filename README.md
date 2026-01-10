@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 纯粹的瑞士魔力 - 2026-01-10
+![纯粹的瑞士魔力](https://cn.bing.com/th?id=OHR.MatterhornSunrise_ZH-CN3171879631_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 日出时分，马特洪峰的倒影映照在斯特利湖中, 采尔马特, 瑞士 (© Andy Trowbridge/naturepl.com)
+> [了解更多](https://www.bing.com/search?q=%E9%A9%AC%E7%89%B9%E6%B4%AA%E5%B3%B0&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.MatterhornSunrise_ZH-CN3171879631_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-10.jpg)
+
+
+
 ## 时光在此处茁壮成长 - 2026-01-09
 ![时光在此处茁壮成长](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_ZH-CN2985538001_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%A5%9A%E5%8A%A0%E5%A5%87%E5%B1%B1%E8%84%89&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.KingMountain_ZH-CN0397508222_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-04.jpg)
-
-
-
-## 传奇故事前的篇章 - 2026-01-03
-![传奇故事前的篇章](https://cn.bing.com/th?id=OHR.LauterbrunnenValley_ZH-CN0118001217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 劳特布隆嫩的施陶巴赫瀑布, 伯尔尼州, 瑞士 (© pongnathee kluaythong/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E6%96%BD%E9%99%B6%E5%B7%B4%E8%B5%AB%E7%80%91%E5%B8%83&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.LauterbrunnenValley_ZH-CN0118001217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-03.jpg)
 
 
 
