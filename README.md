@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 水獭之国爱沙尼亚 - 2026-01-12
+![水獭之国爱沙尼亚](https://cn.bing.com/th?id=OHR.SnowOtters_ZH-CN3563991803_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 欧亚水獭和幼崽, 爱沙尼亚 (© Sven Zacek/naturepl.com)
+> [了解更多](https://www.bing.com/search?q=%E6%AC%A7%E4%BA%9A%E6%B0%B4%E7%8D%AD&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.SnowOtters_ZH-CN3563991803_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-12.jpg)
+
+
+
 ## 从抗拒到绽放 - 2026-01-11
 ![从抗拒到绽放](https://cn.bing.com/th?id=OHR.BlueMorocco_ZH-CN3296596109_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%8A%AA%E5%85%8B%E6%A0%BC%E9%99%B5%E5%85%B0%E5%B2%9B&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-06.jpg)
-
-
-
-## 高角羚群紧急戒备 - 2026-01-05
-![高角羚群紧急戒备](https://cn.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 一群高角羚, 隆多洛齐野生动物保护区, 南非 (© Mint Images/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E9%AB%98%E8%A7%92%E7%BE%9A&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.ImpalaRooibok_ZH-CN2307890154_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-05.jpg)
 
 
 
