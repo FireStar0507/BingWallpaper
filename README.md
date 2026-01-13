@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 苹果韵，旧时光 - 2026-01-13
+![苹果韵，旧时光](https://cn.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 克卢伊德谷, 威尔士 (© Valerie Blencowe/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E5%A8%81%E5%B0%94%E5%A3%AB%E5%85%8B%E5%8D%A2%E4%BC%8A%E5%BE%B7%E8%B0%B7&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-13.jpg)
+
+
+
 ## 水獭之国爱沙尼亚 - 2026-01-12
 ![水獭之国爱沙尼亚](https://cn.bing.com/th?id=OHR.SnowOtters_ZH-CN3563991803_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%8B%B1%E9%97%A8%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.OldRockArch_ZH-CN2061140260_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-07.jpg)
-
-
-
-## 努克的慵懒时光 - 2026-01-06
-![努克的慵懒时光](https://cn.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 努克, 格陵兰 (© nevereverro/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%8A%AA%E5%85%8B%E6%A0%BC%E9%99%B5%E5%85%B0%E5%B2%9B&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.NuukGreenland_ZH-CN2414771686_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-06.jpg)
 
 
 
