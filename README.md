@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 帕拉米蒂的历史之阶 - 2026-01-14
+![帕拉米蒂的历史之阶](https://cn.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊 (© George Pachantouris/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E5%B8%95%E6%8B%89%E7%B1%B3%E8%92%82%E5%9F%8E%E5%A0%A1&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-14.jpg)
+
+
+
 ## 苹果韵，旧时光 - 2026-01-13
 ![苹果韵，旧时光](https://cn.bing.com/th?id=OHR.WalesWinter_ZH-CN3692879767_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%A4%8B%E9%B8%9F&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_ZH-CN2775446092_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-08.jpg)
-
-
-
-## 古老岩石的传奇 - 2026-01-07
-![古老岩石的传奇](https://cn.bing.com/th?id=OHR.OldRockArch_ZH-CN2061140260_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 拱门国家公园的北窗框景中的炮塔拱门, 犹他州, 美国 (© Jim Patterson/TANDEM Stills + Motion)
-> [了解更多](https://www.bing.com/search?q=%E6%8B%B1%E9%97%A8%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.OldRockArch_ZH-CN2061140260_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-07.jpg)
 
 
 
