@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 小村庄，大视野 - 2026-01-15
+![小村庄，大视野](https://cn.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 雷讷渔村, 挪威 (© Roberto Moiola/Cavan Images/SuperStock)
+> [了解更多](https://www.bing.com/search?q=%E9%9B%B7%E8%AE%B7&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-15.jpg)
+
+
+
 ## 帕拉米蒂的历史之阶 - 2026-01-14
 ![帕拉米蒂的历史之阶](https://cn.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%BC%AA%E5%B0%94%E6%A0%91%E6%9E%97%E5%9B%BD%E5%AE%B6%E4%BF%9D%E6%8A%A4%E5%8C%BA&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.MuirWoodsMonument_ZH-CN2985538001_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-09.jpg)
-
-
-
-## 废墟之上，椋鸟群舞 - 2026-01-08
-![废墟之上，椋鸟群舞](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_ZH-CN2775446092_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 椋鸟群在布莱顿西码头废墟上空盘旋, 英格兰 (© Philip Reeve/Photodisc/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E6%A4%8B%E9%B8%9F&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.StarlingBrighton2025_ZH-CN2775446092_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-08.jpg)
 
 
 
