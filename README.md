@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 伪装成沙漠的奇境 - 2026-01-18
+![伪装成沙漠的奇境](https://cn.bing.com/th?id=OHR.WhiteSandsNM_ZH-CN7070772772_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 白沙国家公园，新墨西哥州，美国 (© Francesco Carucci/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E7%99%BD%E6%B2%99%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.WhiteSandsNM_ZH-CN7070772772_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-18.jpg)
+
+
+
 ## 普雷比希托广场上的穹顶 - 2026-01-17
 ![普雷比希托广场上的穹顶](https://cn.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%AC%A7%E4%BA%9A%E6%B0%B4%E7%8D%AD&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.SnowOtters_ZH-CN3563991803_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-12.jpg)
-
-
-
-## 从抗拒到绽放 - 2026-01-11
-![从抗拒到绽放](https://cn.bing.com/th?id=OHR.BlueMorocco_ZH-CN3296596109_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 舍夫沙万的蓝色墙壁, 摩洛哥 (© AnetteAndersen/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E6%91%A9%E6%B4%9B%E5%93%A5%E8%88%8D%E5%A4%AB%E6%B2%99%E4%B8%87&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.BlueMorocco_ZH-CN3296596109_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-11.jpg)
 
 
 
