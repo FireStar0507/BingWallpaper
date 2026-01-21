@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 冬日白雪中的一抹红 - 2026-01-21
+![冬日白雪中的一抹红](https://cn.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 欧亚红松鼠 (© Galina Jacyna/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E6%AC%A7%E4%BA%9A%E7%BA%A2%E6%9D%BE%E9%BC%A0&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-21.jpg)
+
+
+
 ## 冬季里的呆萌小可爱 - 2026-01-20
 ![冬季里的呆萌小可爱](https://cn.bing.com/th?id=OHR.TheGreatColdY25_ZH-CN7239762815_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E9%9B%B7%E8%AE%B7&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-15.jpg)
-
-
-
-## 帕拉米蒂的历史之阶 - 2026-01-14
-![帕拉米蒂的历史之阶](https://cn.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 帕拉米蒂要塞的阶梯, 纳夫普利翁, 希腊 (© George Pachantouris/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%B8%95%E6%8B%89%E7%B1%B3%E8%92%82%E5%9F%8E%E5%A0%A1&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.PalamidiFortress_ZH-CN5420143053_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-14.jpg)
 
 
 
