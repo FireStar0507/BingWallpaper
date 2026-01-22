@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 波西米亚温泉故事 - 2026-01-22
+![波西米亚温泉故事](https://cn.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 卡罗维瓦利，波西米亚，捷克共和国 (© Henryk Sadura/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E5%8D%A1%E7%BD%97%E7%BB%B4%E7%93%A6%E5%88%A9&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-22.jpg)
+
+
+
 ## 冬日白雪中的一抹红 - 2026-01-21
 ![冬日白雪中的一抹红](https://cn.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E8%B1%B9%E5%AD%90&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-16.jpg)
-
-
-
-## 小村庄，大视野 - 2026-01-15
-![小村庄，大视野](https://cn.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 雷讷渔村, 挪威 (© Roberto Moiola/Cavan Images/SuperStock)
-> [了解更多](https://www.bing.com/search?q=%E9%9B%B7%E8%AE%B7&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.ReineSunrise_ZH-CN6297586399_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-15.jpg)
 
 
 
