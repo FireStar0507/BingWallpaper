@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 霜雪中的盛宴 - 2026-01-23
+![霜雪中的盛宴](https://cn.bing.com/th?id=OHR.IcelandSheep_ZH-CN3931993073_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 绵羊在雪地里吃草，冰岛 (© Christophe Lehenaff/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E5%86%B0%E5%B2%9B%E4%BB%B2%E5%86%AC%E8%8A%82&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.IcelandSheep_ZH-CN3931993073_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-23.jpg)
+
+
+
 ## 波西米亚温泉故事 - 2026-01-22
 ![波西米亚温泉故事](https://cn.bing.com/th?id=OHR.KarlovyVary_ZH-CN7585938362_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E9%82%A3%E4%B8%8D%E5%8B%92%E6%96%AF%E4%BF%9D%E7%BD%97%E5%9C%A3%E8%8A%B3%E6%B5%8E%E5%9C%A3%E6%AE%BF&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.NaplesBasilica_ZH-CN6888150174_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-17.jpg)
-
-
-
-## 眼神对上了 - 2026-01-16
-![眼神对上了](https://cn.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 埃托沙国家公园的豹子，纳米比亚 (© Norbert Achtelik/Cavan Images)
-> [了解更多](https://www.bing.com/search?q=%E8%B1%B9%E5%AD%90&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.EtoshaLeopard_ZH-CN6654006040_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-16.jpg)
 
 
 
