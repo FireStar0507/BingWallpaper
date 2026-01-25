@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 传统熠熠生辉 - 2026-01-25
+![传统熠熠生辉](https://cn.bing.com/th?id=OHR.BurnsPark_ZH-CN4442772228_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 伯恩斯国家遗产公园，艾尔，南艾尔郡，苏格兰 (© Alister Firth/Alamy)
+> [了解更多](https://www.bing.com/search?q=%E8%8B%8F%E6%A0%BC%E5%85%B0%E5%8D%97%E8%89%BE%E5%B0%94%E9%83%A1&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.BurnsPark_ZH-CN4442772228_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-25.jpg)
+
+
+
 ## 瑞士山间的短逃离 - 2026-01-24
 ![瑞士山间的短逃离](https://cn.bing.com/th?id=OHR.AndermattSwiss_ZH-CN4112824348_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E4%BA%9A%E4%BC%AF%E6%8B%89%E7%BD%95%E6%B9%96&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.BubblesAbraham_ZH-CN7203734882_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-19.jpg)
-
-
-
-## 伪装成沙漠的奇境 - 2026-01-18
-![伪装成沙漠的奇境](https://cn.bing.com/th?id=OHR.WhiteSandsNM_ZH-CN7070772772_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 白沙国家公园，新墨西哥州，美国 (© Francesco Carucci/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E7%99%BD%E6%B2%99%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.WhiteSandsNM_ZH-CN7070772772_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-18.jpg)
 
 
 
