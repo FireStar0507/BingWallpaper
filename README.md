@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 羽翼预告：前方有鹈鹕 - 2026-01-27
+![羽翼预告：前方有鹈鹕](https://cn.bing.com/th?id=OHR.DalmationPelicans_ZH-CN5252732863_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 卷羽鹈鹕，凯尔基尼湖，希腊 (© Guy Edwardes/naturepl.com)
+> [了解更多](https://www.bing.com/search?q=%E5%8D%B7%E7%BE%BD%E9%B9%88%E9%B9%95&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.DalmationPelicans_ZH-CN5252732863_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-27.jpg)
+
+
+
 ## 巴伐利亚的瑰宝 - 2026-01-26
 ![巴伐利亚的瑰宝](https://cn.bing.com/th?id=OHR.NeuschwansteinWinter_ZH-CN4972014681_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%AC%A7%E4%BA%9A%E7%BA%A2%E6%9D%BE%E9%BC%A0&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.BerrySquirrel_ZH-CN7382553646_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-21.jpg)
-
-
-
-## 冬季里的呆萌小可爱 - 2026-01-20
-![冬季里的呆萌小可爱](https://cn.bing.com/th?id=OHR.TheGreatColdY25_ZH-CN7239762815_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 栖息在树枝上的北长尾山雀，大庆市，中国黑龙江省 (© Visual China Group/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%A4%A7%E5%AF%92%E8%8A%82%E6%B0%94&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.TheGreatColdY25_ZH-CN7239762815_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-20.jpg)
 
 
 
