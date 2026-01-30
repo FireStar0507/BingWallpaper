@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 海潮退却之处 - 2026-01-30
+![海潮退却之处](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_ZH-CN5878042411_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 马拉齐翁的圣迈克尔山, 康沃尔郡, 英格兰 (© Baxter Bradford/robertharding/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E5%9C%A3%E8%BF%88%E5%85%8B%E5%B0%94%E5%B1%B1&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_ZH-CN5878042411_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-30.jpg)
+
+
+
 ## 密尔沃基的传奇故事 - 2026-01-29
 ![密尔沃基的传奇故事](https://cn.bing.com/th?id=OHR.MilwaukeeHall_ZH-CN5779477975_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%91%9E%E5%A3%AB%E5%AE%89%E5%BE%B7%E9%A9%AC%E7%89%B9%E5%B0%8F%E9%95%87&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.AndermattSwiss_ZH-CN4112824348_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-24.jpg)
-
-
-
-## 霜雪中的盛宴 - 2026-01-23
-![霜雪中的盛宴](https://cn.bing.com/th?id=OHR.IcelandSheep_ZH-CN3931993073_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 绵羊在雪地里吃草，冰岛 (© Christophe Lehenaff/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%86%B0%E5%B2%9B%E4%BB%B2%E5%86%AC%E8%8A%82&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.IcelandSheep_ZH-CN3931993073_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-23.jpg)
 
 
 
