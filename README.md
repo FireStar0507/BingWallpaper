@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 一见钟情 - 2026-01-31
+![一见钟情](https://cn.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 平原斑马, 埃托沙国家公园, 纳米比亚 (© Mogens Trolle/Shutterstock)
+> [了解更多](https://www.bing.com/search?q=%E5%B9%B3%E5%8E%9F%E6%96%91%E9%A9%AC&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-31.jpg)
+
+
+
 ## 海潮退却之处 - 2026-01-30
 ![海潮退却之处](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_ZH-CN5878042411_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E8%8B%8F%E6%A0%BC%E5%85%B0%E5%8D%97%E8%89%BE%E5%B0%94%E9%83%A1&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.BurnsPark_ZH-CN4442772228_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-25.jpg)
-
-
-
-## 瑞士山间的短逃离 - 2026-01-24
-![瑞士山间的短逃离](https://cn.bing.com/th?id=OHR.AndermattSwiss_ZH-CN4112824348_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 阿尔卑斯山脉的安德马特小镇，瑞士 (© Xantana/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E7%91%9E%E5%A3%AB%E5%AE%89%E5%BE%B7%E9%A9%AC%E7%89%B9%E5%B0%8F%E9%95%87&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.AndermattSwiss_ZH-CN4112824348_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-24.jpg)
 
 
 
