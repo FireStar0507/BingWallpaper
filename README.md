@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 太浩湖视觉盛宴 - 2026-02-03
+![太浩湖视觉盛宴](https://cn.bing.com/th?id=OHR.FanetteIsland_ZH-CN6466809551_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 翡翠湾和范内特岛, 太浩湖, 加利福尼亚州, 美国 (© Bill Stevenson/Cavan Images)
+> [了解更多](https://www.bing.com/search?q=%E5%A4%AA%E6%B5%A9%E6%B9%96%E8%8C%83%E5%86%85%E7%89%B9%E5%B2%9B&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.FanetteIsland_ZH-CN6466809551_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-03.jpg)
+
+
+
 ## 影子的承诺 - 2026-02-02
 ![影子的承诺](https://cn.bing.com/th?id=OHR.AlpineMarmots_ZH-CN6323637910_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%96%B0%E8%A5%BF%E5%85%B0%E6%97%BA%E6%A0%BC%E5%8A%AA%E4%BC%8A%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.WhanganuiPark_ZH-CN5664518836_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-28.jpg)
-
-
-
-## 羽翼预告：前方有鹈鹕 - 2026-01-27
-![羽翼预告：前方有鹈鹕](https://cn.bing.com/th?id=OHR.DalmationPelicans_ZH-CN5252732863_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 卷羽鹈鹕，凯尔基尼湖，希腊 (© Guy Edwardes/naturepl.com)
-> [了解更多](https://www.bing.com/search?q=%E5%8D%B7%E7%BE%BD%E9%B9%88%E9%B9%95&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.DalmationPelicans_ZH-CN5252732863_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-27.jpg)
 
 
 
