@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 优雅掠过天际 - 2026-02-04
+![优雅掠过天际](https://cn.bing.com/th?id=OHR.BigGardenBirdwatch2026_ZH-CN6864628198_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 雪中​​的红鸢 (© Carl Mckie/500px/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E7%BA%A2%E9%B8%A2%E9%B8%9F&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.BigGardenBirdwatch2026_ZH-CN6864628198_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-04.jpg)
+
+
+
 ## 太浩湖视觉盛宴 - 2026-02-03
 ![太浩湖视觉盛宴](https://cn.bing.com/th?id=OHR.FanetteIsland_ZH-CN6466809551_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%AF%86%E5%B0%94%E6%B2%83%E5%9F%BA%E5%B8%82&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.MilwaukeeHall_ZH-CN5779477975_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-29.jpg)
-
-
-
-## 随河而行 - 2026-01-28
-![随河而行](https://cn.bing.com/th?id=OHR.WhanganuiPark_ZH-CN5664518836_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 旺格努伊国家公园，雷塔鲁克，新西兰 (© Matthew Micah Wright/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E6%96%B0%E8%A5%BF%E5%85%B0%E6%97%BA%E6%A0%BC%E5%8A%AA%E4%BC%8A%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.WhanganuiPark_ZH-CN5664518836_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-28.jpg)
 
 
 
