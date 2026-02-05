@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 困在网格里 - 2026-02-05
+![困在网格里](https://cn.bing.com/th?id=OHR.MaltaSalt_ZH-CN7025158187_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 戈佐岛上的盐田, 马耳他 (© Marius Roman/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E9%A9%AC%E8%80%B3%E4%BB%96%E6%88%88%E4%BD%90%E5%B2%9B+&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.MaltaSalt_ZH-CN7025158187_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-05.jpg)
+
+
+
 ## 优雅掠过天际 - 2026-02-04
 ![优雅掠过天际](https://cn.bing.com/th?id=OHR.BigGardenBirdwatch2026_ZH-CN6864628198_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%9C%A3%E8%BF%88%E5%85%8B%E5%B0%94%E5%B1%B1&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.StMichaelsCornwall_ZH-CN5878042411_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-30.jpg)
-
-
-
-## 密尔沃基的传奇故事 - 2026-01-29
-![密尔沃基的传奇故事](https://cn.bing.com/th?id=OHR.MilwaukeeHall_ZH-CN5779477975_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 密尔沃基市政厅的八层开放式中庭，威斯康星州，美国 (© lavin photography/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%AF%86%E5%B0%94%E6%B2%83%E5%9F%BA%E5%B8%82&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.MilwaukeeHall_ZH-CN5779477975_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-29.jpg)
 
 
 
