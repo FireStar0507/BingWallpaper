@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 在盐沼与天空之间，万物静谧 - 2026-02-07
+![在盐沼与天空之间，万物静谧](https://cn.bing.com/th?id=OHR.SalarUyuni_ZH-CN4163237089_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 玻利维亚乌尤尼盐湖 (© Abstract Aerial Art/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E7%8E%BB%E5%88%A9%E7%BB%B4%E4%BA%9A%E4%B9%8C%E5%B0%A4%E5%B0%BC%E7%9B%90%E6%B2%BC&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.SalarUyuni_ZH-CN4163237089_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-07.jpg)
+
+
+
 ## 拉古塞拉——奥运赛季的巅峰 - 2026-02-06
 ![拉古塞拉——奥运赛季的巅峰](https://cn.bing.com/th?id=OHR.GiauPass_ZH-CN3901214501_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%B7%B4%E8%A5%BF%E5%A5%A5%E6%9E%97%E8%BE%BE&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.Olinda_ZH-CN6216385346_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-01.jpg)
-
-
-
-## 一见钟情 - 2026-01-31
-![一见钟情](https://cn.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 平原斑马, 埃托沙国家公园, 纳米比亚 (© Mogens Trolle/Shutterstock)
-> [了解更多](https://www.bing.com/search?q=%E5%B9%B3%E5%8E%9F%E6%96%91%E9%A9%AC&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.EtoshaZebra_ZH-CN6068087794_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/01/2026-01-31.jpg)
 
 
 
