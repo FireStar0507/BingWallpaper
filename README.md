@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 从宁静的夜晚到充满冒险的白天 - 2026-02-08
+![从宁静的夜晚到充满冒险的白天](https://cn.bing.com/th?id=OHR.CorfuGreece_ZH-CN4305970968_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 科孚岛的夜晚, 希腊 (© whitewizzard/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E5%B8%8C%E8%85%8A%E7%A7%91%E5%AD%9A%E5%B2%9B&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.CorfuGreece_ZH-CN4305970968_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-08.jpg)
+
+
+
 ## 在盐沼与天空之间，万物静谧 - 2026-02-07
 ![在盐沼与天空之间，万物静谧](https://cn.bing.com/th?id=OHR.SalarUyuni_ZH-CN4163237089_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E9%98%BF%E5%B0%94%E5%8D%91%E6%96%AF%E5%B1%B1%E5%9C%9F%E6%8B%A8%E9%BC%A0&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.AlpineMarmots_ZH-CN6323637910_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-02.jpg)
-
-
-
-## 奇迹之墙 - 2026-02-01
-![奇迹之墙](https://cn.bing.com/th?id=OHR.Olinda_ZH-CN6216385346_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 奥林达的彩色房子, 巴西 (© Robert Pekar/Alamy)
-> [了解更多](https://www.bing.com/search?q=%E5%B7%B4%E8%A5%BF%E5%A5%A5%E6%9E%97%E8%BE%BE&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.Olinda_ZH-CN6216385346_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-01.jpg)
 
 
 
