@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 斑纹流转 - 2026-02-09
+![斑纹流转](https://cn.bing.com/th?id=OHR.LeopardCat_ZH-CN4431427444_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 阿穆尔豹猫，俄罗斯 (© Valeriy Maleev/naturepl.com)
+> [了解更多](https://www.bing.com/search?q=%E8%B1%B9%E7%8C%AB&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.LeopardCat_ZH-CN4431427444_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-09.jpg)
+
+
+
 ## 从宁静的夜晚到充满冒险的白天 - 2026-02-08
 ![从宁静的夜晚到充满冒险的白天](https://cn.bing.com/th?id=OHR.CorfuGreece_ZH-CN4305970968_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%A4%AA%E6%B5%A9%E6%B9%96%E8%8C%83%E5%86%85%E7%89%B9%E5%B2%9B&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.FanetteIsland_ZH-CN6466809551_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-03.jpg)
-
-
-
-## 影子的承诺 - 2026-02-02
-![影子的承诺](https://cn.bing.com/th?id=OHR.AlpineMarmots_ZH-CN6323637910_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 阿尔卑斯山土拨鼠, 霍赫陶恩国家公园, 奥地利 (© Raimund Linke/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E9%98%BF%E5%B0%94%E5%8D%91%E6%96%AF%E5%B1%B1%E5%9C%9F%E6%8B%A8%E9%BC%A0&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.AlpineMarmots_ZH-CN6323637910_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-02.jpg)
 
 
 
