@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 对比之谷 - 2026-02-11
+![对比之谷](https://cn.bing.com/th?id=OHR.BadwaterFlats_ZH-CN4713617982_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 死亡谷国家公园恶水盆地的盐滩, 加利福尼亚州, 美国 (© Jim Patterson/TANDEM Stills + Motion)
+> [了解更多](https://www.bing.com/search?q=%E6%AD%BB%E8%B0%B7%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.BadwaterFlats_ZH-CN4713617982_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-11.jpg)
+
+
+
 ## 海妖歌唱之处 - 2026-02-10
 ![海妖歌唱之处](https://cn.bing.com/th?id=OHR.IbizaIslets_ZH-CN4580106286_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E9%A9%AC%E8%80%B3%E4%BB%96%E6%88%88%E4%BD%90%E5%B2%9B+&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.MaltaSalt_ZH-CN7025158187_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-05.jpg)
-
-
-
-## 优雅掠过天际 - 2026-02-04
-![优雅掠过天际](https://cn.bing.com/th?id=OHR.BigGardenBirdwatch2026_ZH-CN6864628198_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 雪中​​的红鸢 (© Carl Mckie/500px/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E7%BA%A2%E9%B8%A2%E9%B8%9F&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.BigGardenBirdwatch2026_ZH-CN6864628198_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-04.jpg)
 
 
 
