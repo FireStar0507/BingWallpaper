@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 生而自由，永不驯服 - 2026-02-18
+![生而自由，永不驯服](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 普氏野马 (© Nemyrivskyi Viacheslav/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E6%99%AE%E6%B0%8F%E9%87%8E%E9%A9%AC&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-18.jpg)
+
+
+
 ## 福气满满，马年大吉 - 2026-02-17
 ![福气满满，马年大吉](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E8%93%9D%E8%84%9A%E9%B2%A3%E9%B8%9F&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.DarwinBooby_ZH-CN4925779873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-12.jpg)
-
-
-
-## 对比之谷 - 2026-02-11
-![对比之谷](https://cn.bing.com/th?id=OHR.BadwaterFlats_ZH-CN4713617982_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 死亡谷国家公园恶水盆地的盐滩, 加利福尼亚州, 美国 (© Jim Patterson/TANDEM Stills + Motion)
-> [了解更多](https://www.bing.com/search?q=%E6%AD%BB%E8%B0%B7%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.BadwaterFlats_ZH-CN4713617982_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-11.jpg)
 
 
 
