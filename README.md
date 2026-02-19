@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 大地凝视着我们 - 2026-02-19
+![大地凝视着我们](https://cn.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 乌塔克莱夫海滩的“龙之眼”岩层，挪威 (© reisegraf/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E4%B9%8C%E5%A1%94%E5%85%8B%E8%8E%B1%E5%A4%AB%E6%B5%B7%E6%BB%A9&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.DragonsEyeRock_ZH-CN6164478776_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-19.jpg)
+
+
+
 ## 生而自由，永不驯服 - 2026-02-18
 ![生而自由，永不驯服](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%AC%AC%E4%B8%89%E5%BA%A7%E6%B3%B0%E8%80%81%E5%8F%8B%E8%B0%8A%E5%A4%A7%E6%A1%A5&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.FriendshipBridge_ZH-CN5199165736_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-13.jpg)
-
-
-
-## 聚焦进化 - 2026-02-12
-![聚焦进化](https://cn.bing.com/th?id=OHR.DarwinBooby_ZH-CN4925779873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 蓝脚鲣鸟，加拉帕戈斯群岛, 厄瓜多尔 (© Karine Aigner/TANDEM Stills + Motion)
-> [了解更多](https://www.bing.com/search?q=%E8%93%9D%E8%84%9A%E9%B2%A3%E9%B8%9F&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.DarwinBooby_ZH-CN4925779873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-12.jpg)
 
 
 
