@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 冬日的低语 - 2026-02-21
+![冬日的低语](https://cn.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 一只红狐狸站在雪地里，大提顿国家公园，怀俄明州，美国 (© Radomir Jakubowski/naturepl.com)
+> [了解更多](https://www.bing.com/search?q=%E8%B5%A4%E7%8B%90&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.TetonFox_ZH-CN9461948674_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-21.jpg)
+
+
+
 ## 光照之处 - 2026-02-20
 ![光照之处](https://cn.bing.com/th?id=OHR.AdamsFirefall_ZH-CN9409143565_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E9%B2%B8%E9%B1%BC&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.MontereyHumpbacks_ZH-CN5426789466_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-15.jpg)
-
-
-
-## 爱意绽放 - 2026-02-14
-![爱意绽放](https://cn.bing.com/th?id=OHR.ValentineHearts_ZH-CN5332774664_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 荷包牡丹 (© Dorene Hookey/Cavan Images)
-> [了解更多](https://www.bing.com/search?q=%E6%83%85%E4%BA%BA%E8%8A%82&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.ValentineHearts_ZH-CN5332774664_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-14.jpg)
 
 
 
