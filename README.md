@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 池底的生命律动 - 2026-02-24
+![池底的生命律动](https://cn.bing.com/th?id=OHR.TulumLilies_ZH-CN0959403613_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 大天坑里的睡莲，图卢姆，墨西哥 (© Christian Vizl/Tandem Stills + Motion)
+> [了解更多](https://www.bing.com/search?q=%E5%9B%BE%E5%8D%A2%E5%A7%86%E5%A4%A7%E5%A4%A9%E5%9D%91&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.TulumLilies_ZH-CN0959403613_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-24.jpg)
+
+
+
 ## 雪原之王 - 2026-02-23
 ![雪原之王](https://cn.bing.com/th?id=OHR.BavariaEgret_ZH-CN0521643213_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%99%AE%E6%B0%8F%E9%87%8E%E9%A9%AC&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.PrzewalskisHorse_ZH-CN5785609662_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-18.jpg)
-
-
-
-## 福气满满，马年大吉 - 2026-02-17
-![福气满满，马年大吉](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 中国春节传统汉字“福” (© DuKai摄影师/Getty Images)
-> [了解更多](https://www.bing.com/search?q=2026%E9%A9%AC%E5%B9%B4%E6%98%A5%E8%8A%82&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.SpringFestivalY26_ZH-CN0228318064_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-17.jpg)
 
 
 
