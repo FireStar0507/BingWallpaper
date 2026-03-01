@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 每一步，都是传承 - 2026-03-01
+![每一步，都是传承](https://cn.bing.com/th?id=OHR.BalearesDay_ZH-CN5024902433_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 伊维萨岛, 巴利阿里群岛, 西班牙 (© tokar/Shutterstock)
+> [了解更多](https://www.bing.com/search?q=%E4%BC%8A%E7%BB%B4%E8%90%A8%E5%B2%9B&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.BalearesDay_ZH-CN5024902433_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-01.jpg)
+
+
+
 ## 洋溢着社区氛围 - 2026-02-28
 ![洋溢着社区氛围](https://cn.bing.com/th?id=OHR.OloupenaFalls_ZH-CN2980118660_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%A4%A7%E7%99%BD%E9%B9%AD&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.BavariaEgret_ZH-CN0521643213_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-23.jpg)
-
-
-
-## 群山的母亲 - 2026-02-22
-![群山的母亲](https://cn.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 马姆托尔山，德比郡，英格兰 (© john finney photography/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E9%A9%AC%E5%A7%86%E6%89%98%E5%B0%94%E5%B1%B1&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.MamTorSunrise_ZH-CN9698497298_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-22.jpg)
 
 
 
