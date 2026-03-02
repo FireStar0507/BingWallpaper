@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 漂浮的传承 - 2026-03-02
+![漂浮的传承](https://cn.bing.com/th?id=OHR.SamuiThailand_ZH-CN3323790951_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 苏梅岛的港口和长尾船, 泰国 (© Foto2rich/Shutterstock)
+> [了解更多](https://www.bing.com/search?q=%E6%B3%B0%E5%9B%BD%E8%8B%8F%E6%A2%85%E5%B2%9B&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.SamuiThailand_ZH-CN3323790951_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-02.jpg)
+
+
+
 ## 每一步，都是传承 - 2026-03-01
 ![每一步，都是传承](https://cn.bing.com/th?id=OHR.BalearesDay_ZH-CN5024902433_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%9B%BE%E5%8D%A2%E5%A7%86%E5%A4%A7%E5%A4%A9%E5%9D%91&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.TulumLilies_ZH-CN0959403613_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-24.jpg)
-
-
-
-## 雪原之王 - 2026-02-23
-![雪原之王](https://cn.bing.com/th?id=OHR.BavariaEgret_ZH-CN0521643213_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 大白鹭，上巴伐利亚州，德国 (© Konrad Wothe/naturepl.com)
-> [了解更多](https://www.bing.com/search?q=%E5%A4%A7%E7%99%BD%E9%B9%AD&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.BavariaEgret_ZH-CN0521643213_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-23.jpg)
 
 
 
