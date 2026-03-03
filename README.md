@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 花灯映月，团圆吉祥 - 2026-03-03
+![花灯映月，团圆吉祥](https://cn.bing.com/th?id=OHR.LanternFestivalY26_ZH-CN9186685796_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 元宵节期间悬挂的宫灯，北京自贡灯会现场，北京，中国 (© Grisha Bruev/Shutterstock)
+> [了解更多](https://www.bing.com/search?q=%E5%85%83%E5%AE%B5%E8%8A%82&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.LanternFestivalY26_ZH-CN9186685796_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-03.jpg)
+
+
+
 ## 漂浮的传承 - 2026-03-02
 ![漂浮的传承](https://cn.bing.com/th?id=OHR.SamuiThailand_ZH-CN3323790951_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E9%97%A8%E7%99%BB%E9%9C%8D%E5%B0%94%E5%86%B0%E5%B7%9D&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.MendenhallCave_ZH-CN1850649760_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-25.jpg)
-
-
-
-## 池底的生命律动 - 2026-02-24
-![池底的生命律动](https://cn.bing.com/th?id=OHR.TulumLilies_ZH-CN0959403613_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 大天坑里的睡莲，图卢姆，墨西哥 (© Christian Vizl/Tandem Stills + Motion)
-> [了解更多](https://www.bing.com/search?q=%E5%9B%BE%E5%8D%A2%E5%A7%86%E5%A4%A7%E5%A4%A9%E5%9D%91&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.TulumLilies_ZH-CN0959403613_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-24.jpg)
 
 
 
