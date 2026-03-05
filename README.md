@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 古老岩石，现代灯光 - 2026-03-05
+![古老岩石，现代灯光](https://cn.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 格雷梅的傍晚, 卡帕多西亚, 土耳其 (© ONNAJA/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E5%9C%9F%E8%80%B3%E5%85%B6%E6%A0%BC%E9%9B%B7%E6%A2%85&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-05.jpg)
+
+
+
 ## 聚光灯下的番红花 - 2026-03-04
 ![聚光灯下的番红花](https://cn.bing.com/th?id=OHR.RilaCrocuses_ZH-CN3650360951_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%8C%97%E6%9E%81%E7%86%8A&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.ArcitcCub_ZH-CN2725049760_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-27.jpg)
-
-
-
-## 一幅壮丽的景象 - 2026-02-26
-![一幅壮丽的景象](https://cn.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 大峡谷和科罗拉多河，亚利桑那州，美国 (© Matt Anderson Photography/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E7%BE%8E%E5%9B%BD%E5%A4%A7%E5%B3%A1%E8%B0%B7%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.GrandSunset_ZH-CN1905986519_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/02/2026-02-26.jpg)
 
 
 
