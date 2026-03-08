@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 节约日光的艺术 - 2026-03-08
+![节约日光的艺术](https://cn.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 乌尔姆市政厅的天文钟, 德国 (© Tomekbudujedomek/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E5%A4%A9%E6%96%87%E9%92%9F&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-08.jpg)
+
+
+
 ## 治愈、宁静且充满希望 - 2026-03-07
 ![治愈、宁静且充满希望](https://cn.bing.com/th?id=OHR.BrockenSunrise_ZH-CN4930790850_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%B3%B0%E5%9B%BD%E8%8B%8F%E6%A2%85%E5%B2%9B&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.SamuiThailand_ZH-CN3323790951_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-02.jpg)
-
-
-
-## 每一步，都是传承 - 2026-03-01
-![每一步，都是传承](https://cn.bing.com/th?id=OHR.BalearesDay_ZH-CN5024902433_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 伊维萨岛, 巴利阿里群岛, 西班牙 (© tokar/Shutterstock)
-> [了解更多](https://www.bing.com/search?q=%E4%BC%8A%E7%BB%B4%E8%90%A8%E5%B2%9B&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.BalearesDay_ZH-CN5024902433_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-01.jpg)
 
 
 
