@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 霜下之火 - 2026-03-10
+![霜下之火](https://cn.bing.com/th?id=OHR.SpringIceland_ZH-CN9545282898_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 赫韦拉韦利尔的布拉赫维尔地热池, 冰岛 (© Juan Maria Coy Vergara/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E5%86%B0%E5%B2%9B%E5%B8%83%E6%8B%89%E8%B5%AB%E7%BB%B4%E5%B0%94%E5%9C%B0%E7%83%AD%E6%B1%A0&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.SpringIceland_ZH-CN9545282898_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-10.jpg)
+
+
+
 ## 一次恰到好处的午睡 - 2026-03-09
 ![一次恰到好处的午睡](https://cn.bing.com/th?id=OHR.NappingSeal_ZH-CN9424683964_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E4%BF%9D%E5%8A%A0%E5%88%A9%E4%BA%9A%E9%87%8C%E6%8B%89%E4%B8%83%E6%B9%96%E7%95%AA%E7%BA%A2%E8%8A%B1&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.RilaCrocuses_ZH-CN3650360951_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-04.jpg)
-
-
-
-## 花灯映月，团圆吉祥 - 2026-03-03
-![花灯映月，团圆吉祥](https://cn.bing.com/th?id=OHR.LanternFestivalY26_ZH-CN9186685796_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 元宵节期间悬挂的宫灯，北京自贡灯会现场，北京，中国 (© Grisha Bruev/Shutterstock)
-> [了解更多](https://www.bing.com/search?q=%E5%85%83%E5%AE%B5%E8%8A%82&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.LanternFestivalY26_ZH-CN9186685796_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-03.jpg)
 
 
 
