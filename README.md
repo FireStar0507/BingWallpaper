@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 一个美好的春天 - 2026-03-11
+![一个美好的春天](https://cn.bing.com/th?id=OHR.PeachBloom_ZH-CN9660251274_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 盛开的桃树, 谢萨, 穆尔西亚, 西班牙 (© Juan Maria Coy Vergara/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E8%A5%BF%E7%8F%AD%E7%89%99%E8%B0%A2%E8%90%A8&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.PeachBloom_ZH-CN9660251274_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-11.jpg)
+
+
+
 ## 霜下之火 - 2026-03-10
 ![霜下之火](https://cn.bing.com/th?id=OHR.SpringIceland_ZH-CN9545282898_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%9C%9F%E8%80%B3%E5%85%B6%E6%A0%BC%E9%9B%B7%E6%A2%85&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-05.jpg)
-
-
-
-## 聚光灯下的番红花 - 2026-03-04
-![聚光灯下的番红花](https://cn.bing.com/th?id=OHR.RilaCrocuses_ZH-CN3650360951_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 紫番红花, 里拉七湖, 保加利亚 (© Maya Karkalicheva/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E4%BF%9D%E5%8A%A0%E5%88%A9%E4%BA%9A%E9%87%8C%E6%8B%89%E4%B8%83%E6%B9%96%E7%95%AA%E7%BA%A2%E8%8A%B1&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.RilaCrocuses_ZH-CN3650360951_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-04.jpg)
 
 
 
