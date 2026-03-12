@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 排练中的翅膀 - 2026-03-12
+![排练中的翅膀](https://cn.bing.com/th?id=OHR.SunbitternEcuador_ZH-CN9772788253_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 幼年日鳽在巢穴附近展示求偶行为, 厄瓜多尔 (© Andy Rouse/naturepl.com)
+> [了解更多](https://www.bing.com/search?q=%E6%97%A5%E9%B3%BD&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.SunbitternEcuador_ZH-CN9772788253_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-12.jpg)
+
+
+
 ## 一个美好的春天 - 2026-03-11
 ![一个美好的春天](https://cn.bing.com/th?id=OHR.PeachBloom_ZH-CN9660251274_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E4%B8%B9%E9%BA%A6%E7%93%A6%E5%9F%83%E5%8B%92%E6%B3%A2%E6%B5%AA%E5%A4%A7%E5%8E%A6&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.WaveDenmark_ZH-CN8825888678_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-06.jpg)
-
-
-
-## 古老岩石，现代灯光 - 2026-03-05
-![古老岩石，现代灯光](https://cn.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 格雷梅的傍晚, 卡帕多西亚, 土耳其 (© ONNAJA/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%9C%9F%E8%80%B3%E5%85%B6%E6%A0%BC%E9%9B%B7%E6%A2%85&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.GoremeTwilight_ZH-CN3731931947_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-05.jpg)
 
 
 
