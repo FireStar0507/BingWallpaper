@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 掠海而过 - 2026-03-15
+![掠海而过](https://cn.bing.com/th?id=OHR.PacificRimNP_ZH-CN0350089584_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 太平洋沿岸国家公园保护区，温哥华岛，加拿大 (© EmilyNorton/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E7%8E%AF%E5%A4%AA%E5%B9%B3%E6%B4%8B%E9%B2%B8%E9%B1%BC%E8%8A%82&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.PacificRimNP_ZH-CN0350089584_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-15.jpg)
+
+
+
 ## 圆周率的古老启示 - 2026-03-14
 ![圆周率的古老启示](https://cn.bing.com/th?id=OHR.CornwallDolmen_ZH-CN0045468799_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%81%B0%E6%B5%B7%E8%B1%B9&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.NappingSeal_ZH-CN9424683964_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-09.jpg)
-
-
-
-## 节约日光的艺术 - 2026-03-08
-![节约日光的艺术](https://cn.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 乌尔姆市政厅的天文钟, 德国 (© Tomekbudujedomek/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%A4%A9%E6%96%87%E9%92%9F&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.UlmClock_ZH-CN9282560066_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-08.jpg)
 
 
 
