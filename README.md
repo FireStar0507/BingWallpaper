@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 爱尔兰的精神十字路口 - 2026-03-17
+![爱尔兰的精神十字路口](https://cn.bing.com/th?id=OHR.DonegalFort_ZH-CN0718842170_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 艾利赫格里安南环形堡，多内加尔，爱尔兰 (© Lukassek/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E5%9C%A3%E5%B8%95%E7%89%B9%E9%87%8C%E5%85%8B%E8%8A%82&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.DonegalFort_ZH-CN0718842170_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-17.jpg)
+
+
+
 ## 走进熊猫世界 - 2026-03-16
 ![走进熊猫世界](https://cn.bing.com/th?id=OHR.PandaForest_ZH-CN0545156080_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E8%A5%BF%E7%8F%AD%E7%89%99%E8%B0%A2%E8%90%A8&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.PeachBloom_ZH-CN9660251274_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-11.jpg)
-
-
-
-## 霜下之火 - 2026-03-10
-![霜下之火](https://cn.bing.com/th?id=OHR.SpringIceland_ZH-CN9545282898_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 赫韦拉韦利尔的布拉赫维尔地热池, 冰岛 (© Juan Maria Coy Vergara/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%86%B0%E5%B2%9B%E5%B8%83%E6%8B%89%E8%B5%AB%E7%BB%B4%E5%B0%94%E5%9C%B0%E7%83%AD%E6%B1%A0&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.SpringIceland_ZH-CN9545282898_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-10.jpg)
 
 
 
