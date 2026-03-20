@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 春日绯梦 - 2026-03-20
+![春日绯梦](https://cn.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 春日樱花，上海，中国 (© junyyeung/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E4%B8%AD%E5%9B%BD%E7%9A%84%E6%A8%B1%E8%8A%B1&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-20.jpg)
+
+
+
 ## 激发你的好奇心 - 2026-03-19
 ![激发你的好奇心](https://cn.bing.com/th?id=OHR.EchidnaAustralia_ZH-CN0913792118_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%9C%86%E5%91%A8%E7%8E%87%E6%97%A5&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.CornwallDolmen_ZH-CN0045468799_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-14.jpg)
-
-
-
-## 静谧的石之杰作 - 2026-03-13
-![静谧的石之杰作](https://cn.bing.com/th?id=OHR.VendeeVaults_ZH-CN9885568795_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 邦港圣母教堂拱顶，莱萨布勒多洛讷，法国 (© Helmut Meyer zur Capellen/Alamy)
-> [了解更多](https://www.bing.com/search?q=%E6%B3%95%E5%9B%BD%E8%8E%B1%E8%90%A8%E5%B8%83%E5%8B%92%E5%A4%9A%E6%B4%9B%E8%AE%B7&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.VendeeVaults_ZH-CN9885568795_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-13.jpg)
 
 
 
