@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 当水划出界线 - 2026-03-22
+![当水划出界线](https://cn.bing.com/th?id=OHR.TanganyikaWater_ZH-CN4884850067_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 坦噶尼喀湖，非洲 (© BEST-BACKGROUNDS/NASA/Shutterstock)
+> [了解更多](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E6%B0%B4%E6%97%A5&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.TanganyikaWater_ZH-CN4884850067_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-22.jpg)
+
+
+
 ## 根系自由生长的地方 - 2026-03-21
 ![根系自由生长的地方](https://cn.bing.com/th?id=OHR.LeteaForest_ZH-CN4153496399_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%A4%A7%E7%86%8A%E7%8C%AB&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.PandaForest_ZH-CN0545156080_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-16.jpg)
-
-
-
-## 掠海而过 - 2026-03-15
-![掠海而过](https://cn.bing.com/th?id=OHR.PacificRimNP_ZH-CN0350089584_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 太平洋沿岸国家公园保护区，温哥华岛，加拿大 (© EmilyNorton/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E7%8E%AF%E5%A4%AA%E5%B9%B3%E6%B4%8B%E9%B2%B8%E9%B1%BC%E8%8A%82&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.PacificRimNP_ZH-CN0350089584_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-15.jpg)
 
 
 
