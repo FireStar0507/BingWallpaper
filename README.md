@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 春天的形状 - 2026-03-24
+![春天的形状](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_ZH-CN1031985926_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 东湖樱花园的樱花，武汉，中国 (© Zhang Qiao/VCG/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E4%B8%AD%E5%9B%BD%E6%AD%A6%E6%B1%89%E4%B8%9C%E6%B9%96%E6%A8%B1%E8%8A%B1%E5%9B%AD&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_ZH-CN1031985926_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-24.jpg)
+
+
+
 ## 当水划出界线 - 2026-03-23
 ![当水划出界线](https://cn.bing.com/th?id=OHR.SonoranStorm_ZH-CN0579792563_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%B1%A4%E5%A7%86%C2%B7%E9%BA%A6%E8%80%83%E5%B0%94%E6%BB%A8%E6%B0%B4%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.PortlandBlossoms_ZH-CN0814501668_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-18.jpg)
-
-
-
-## 爱尔兰的精神十字路口 - 2026-03-17
-![爱尔兰的精神十字路口](https://cn.bing.com/th?id=OHR.DonegalFort_ZH-CN0718842170_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 艾利赫格里安南环形堡，多内加尔，爱尔兰 (© Lukassek/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%9C%A3%E5%B8%95%E7%89%B9%E9%87%8C%E5%85%8B%E8%8A%82&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.DonegalFort_ZH-CN0718842170_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-17.jpg)
 
 
 
