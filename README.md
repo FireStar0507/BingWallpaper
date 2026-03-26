@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 凌驾荒野之上 - 2026-03-26
+![凌驾荒野之上](https://cn.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 洛根溪吊桥，西海岸步道，加拿大 (© Tandem Stock/Adobe Stock)
+> [了解更多](https://www.bing.com/search?q=%E5%8A%A0%E6%8B%BF%E5%A4%A7%E8%A5%BF%E6%B5%B7%E5%B2%B8%E6%AD%A5%E9%81%93&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-26.jpg)
+
+
+
 ## 海牛的秘密生活 - 2026-03-25
 ![海牛的秘密生活](https://cn.bing.com/th?id=OHR.ManateeSpring_ZH-CN5252847120_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E4%B8%AD%E5%9B%BD%E7%9A%84%E6%A8%B1%E8%8A%B1&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-20.jpg)
-
-
-
-## 激发你的好奇心 - 2026-03-19
-![激发你的好奇心](https://cn.bing.com/th?id=OHR.EchidnaAustralia_ZH-CN0913792118_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 澳洲针鼹，阿德莱德山，澳大利亚 (© Etienne Littlefair/naturepl.com)
-> [了解更多](https://www.bing.com/search?q=%E6%BE%B3%E6%B4%B2%E9%92%88%E9%BC%B9&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.EchidnaAustralia_ZH-CN0913792118_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-19.jpg)
 
 
 
