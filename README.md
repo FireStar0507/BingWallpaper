@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 依然明亮地燃烧着 - 2026-03-27
+![依然明亮地燃烧着](https://cn.bing.com/th?id=OHR.RadioCityHall_ZH-CN5492649461_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 纽约市的无线电城音乐厅, 美国 (© Clarence Holmes Photography/Alamy)
+> [了解更多](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E6%88%8F%E5%89%A7%E6%97%A5&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.RadioCityHall_ZH-CN5492649461_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-27.jpg)
+
+
+
 ## 凌驾荒野之上 - 2026-03-26
 ![凌驾荒野之上](https://cn.bing.com/th?id=OHR.LoganCreek_ZH-CN5372283365_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E6%A3%AE%E6%9E%97%E6%97%A5&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.LeteaForest_ZH-CN4153496399_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-21.jpg)
-
-
-
-## 春日绯梦 - 2026-03-20
-![春日绯梦](https://cn.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 春日樱花，上海，中国 (© junyyeung/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E4%B8%AD%E5%9B%BD%E7%9A%84%E6%A8%B1%E8%8A%B1&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.SpringEquinoxY26_ZH-CN7450181382_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-20.jpg)
 
 
 
