@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 未驯服的精神 - 2026-03-28
+![未驯服的精神](https://cn.bing.com/th?id=OHR.CapeBuffalo_ZH-CN5591123662_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 非洲水牛, 恩戈罗恩戈罗火山口, 坦桑尼亚 (© jesuss8/500px/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E9%9D%9E%E6%B4%B2%E6%B0%B4%E7%89%9B&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.CapeBuffalo_ZH-CN5591123662_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-28.jpg)
+
+
+
 ## 依然明亮地燃烧着 - 2026-03-27
 ![依然明亮地燃烧着](https://cn.bing.com/th?id=OHR.RadioCityHall_ZH-CN5492649461_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E6%B0%B4%E6%97%A5&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.TanganyikaWater_ZH-CN4884850067_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-22.jpg)
-
-
-
-## 根系自由生长的地方 - 2026-03-21
-![根系自由生长的地方](https://cn.bing.com/th?id=OHR.LeteaForest_ZH-CN4153496399_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 莱泰亚森林，多瑙河三角洲，罗马尼亚 (© Wild Wonders of Europe/Widstrand/Nature Picture Library)
-> [了解更多](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E6%A3%AE%E6%9E%97%E6%97%A5&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.LeteaForest_ZH-CN4153496399_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-21.jpg)
 
 
 
