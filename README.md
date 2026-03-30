@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 优雅的动态 - 2026-03-30
+![优雅的动态](https://cn.bing.com/th?id=OHR.IndiaCranes_ZH-CN5871338482_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 蓑羽鹤, 印度 (© Axel Gomille/Nature Picture Library)
+> [了解更多](https://www.bing.com/search?q=%E8%93%91%E7%BE%BD%E9%B9%A4&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.IndiaCranes_ZH-CN5871338482_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-30.jpg)
+
+
+
 ## 海边的宁静 - 2026-03-29
 ![海边的宁静](https://cn.bing.com/th?id=OHR.PeggysLighthouse_ZH-CN5730463973_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E4%B8%AD%E5%9B%BD%E6%AD%A6%E6%B1%89%E4%B8%9C%E6%B9%96%E6%A8%B1%E8%8A%B1%E5%9B%AD&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.WuhanCherryBlossom_ZH-CN1031985926_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-24.jpg)
-
-
-
-## 当水划出界线 - 2026-03-23
-![当水划出界线](https://cn.bing.com/th?id=OHR.SonoranStorm_ZH-CN0579792563_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 坦噶尼喀湖，非洲 (© BEST-BACKGROUNDS/NASA/Shutterstock)
-> [了解更多](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E6%B0%B4%E6%97%A5&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.SonoranStorm_ZH-CN0579792563_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/03/2026-03-23.jpg)
 
 
 
