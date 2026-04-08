@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 翡翠之城 - 2026-04-08
+![翡翠之城](https://cn.bing.com/th?id=OHR.SeattleSunrise_ZH-CN2884575647_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 西雅图，华盛顿州，美国 (© Jim Patterson/Tandem Stills + Motion)
+> [了解更多](https://www.bing.com/search?q=%E8%A5%BF%E9%9B%85%E5%9B%BE&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.SeattleSunrise_ZH-CN2884575647_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/04/2026-04-08.jpg)
+
+
+
 ## 一根树枝，一点工程 - 2026-04-07
 ![一根树枝，一点工程](https://cn.bing.com/th?id=OHR.BeaverPortrait_ZH-CN4700069789_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%8A%A0%E5%88%A9%E7%A6%8F%E5%B0%BC%E4%BA%9A%E5%B7%9E%E4%B8%AD%E5%A4%AE%E8%B0%B7%E5%9C%B0&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.WildflowerValley_ZH-CN7048300331_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/04/2026-04-02.jpg)
-
-
-
-## 跃入四月 - 2026-04-01
-![跃入四月](https://cn.bing.com/th?id=OHR.JapaneseTreeFrog_ZH-CN6467379766_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 粉色牵牛花里的日本树蛙 (© Tetsuya Tanooka/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E6%97%A5%E6%9C%AC%E6%A0%91%E8%9B%99&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.JapaneseTreeFrog_ZH-CN6467379766_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/04/2026-04-01.jpg)
 
 
 
