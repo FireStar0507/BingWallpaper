@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 离开地球的第一步 - 2026-04-12
+![离开地球的第一步](https://cn.bing.com/th?id=OHR.SpaceTrails_ZH-CN8377463217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 城市灯光在下方划过, 拍摄于国际空间站 (© NASA)
+> [了解更多](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E4%BA%BA%E7%B1%BB%E8%88%AA%E5%A4%A9%E6%97%A5&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.SpaceTrails_ZH-CN8377463217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/04/2026-04-12.jpg)
+
+
+
 ## 火山外衣 - 2026-04-11
 ![火山外衣](https://cn.bing.com/th?id=OHR.PlayaPapagayo_ZH-CN7708804019_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%97%A5%E6%9C%AC%E7%9A%84%E6%A8%B1%E8%8A%B1&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.CastleBlossoms_ZH-CN3064288127_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/04/2026-04-06.jpg)
-
-
-
-## 静静绽放的变化 - 2026-04-05
-![静静绽放的变化](https://cn.bing.com/th?id=OHR.SpringSnowdrops_ZH-CN2933051747_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 春天的雪钟花 (© klagyivik/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E9%9B%AA%E9%92%9F%E8%8A%B1&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.SpringSnowdrops_ZH-CN2933051747_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/04/2026-04-05.jpg)
 
 
 
