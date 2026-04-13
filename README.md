@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 当灯光熄灭之后 - 2026-04-13
+![当灯光熄灭之后](https://cn.bing.com/th?id=OHR.BorregoStars_ZH-CN8915519147_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 安扎-博雷戈沙漠州立公园上空的银河, 加利福尼亚州, 美国 (© Kevin Key/Slworking)/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E9%93%B6%E6%B2%B3&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.BorregoStars_ZH-CN8915519147_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/04/2026-04-13.jpg)
+
+
+
 ## 离开地球的第一步 - 2026-04-12
 ![离开地球的第一步](https://cn.bing.com/th?id=OHR.SpaceTrails_ZH-CN8377463217_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=beaver+rodent&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.BeaverPortrait_ZH-CN4700069789_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/04/2026-04-07.jpg)
-
-
-
-## 芬芳四月 - 2026-04-06
-![芬芳四月](https://cn.bing.com/th?id=OHR.CastleBlossoms_ZH-CN3064288127_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 樱花盛开的弘前城，弘前，日本 (© Glenn Waters/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E6%97%A5%E6%9C%AC%E7%9A%84%E6%A8%B1%E8%8A%B1&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.CastleBlossoms_ZH-CN3064288127_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/04/2026-04-06.jpg)
 
 
 
