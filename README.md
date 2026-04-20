@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 日落之后，探索仍在继续 - 2026-04-20
+![日落之后，探索仍在继续](https://cn.bing.com/th?id=OHR.SunsetKiva_ZH-CN3978606378_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 夕阳下的峡谷地国家公园，莫阿布，犹他州，美国 (© Jason Hatfield/Tandem Stills + Motion)
+> [了解更多](https://www.bing.com/search?q=%E5%B3%A1%E8%B0%B7%E5%9C%B0%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.SunsetKiva_ZH-CN3978606378_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/04/2026-04-20.jpg)
+
+
+
 ## 潮汐留下的印记 - 2026-04-19
 ![潮汐留下的印记](https://cn.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%B5%B7%E8%91%B5&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.OcellarisClownfish_ZH-CN9362948727_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/04/2026-04-14.jpg)
-
-
-
-## 当灯光熄灭之后 - 2026-04-13
-![当灯光熄灭之后](https://cn.bing.com/th?id=OHR.BorregoStars_ZH-CN8915519147_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 安扎-博雷戈沙漠州立公园上空的银河, 加利福尼亚州, 美国 (© Kevin Key/Slworking)/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E9%93%B6%E6%B2%B3&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.BorregoStars_ZH-CN8915519147_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/04/2026-04-13.jpg)
 
 
 
