@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 打破企鹅规则 - 2026-04-25
+![打破企鹅规则](https://cn.bing.com/th?id=OHR.GalapagosPenguins_ZH-CN5791845489_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 加拉帕戈斯企鹅游泳, 加拉帕戈斯群岛, 厄瓜多尔 (© Henley Spiers/Nature Picture Library)
+> [了解更多](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E4%BC%81%E9%B9%85%E6%97%A5&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.GalapagosPenguins_ZH-CN5791845489_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/04/2026-04-25.jpg)
+
+
+
 ## 向树木致敬 - 2026-04-24
 ![向树木致敬](https://cn.bing.com/th?id=OHR.SlashPine_ZH-CN5629388290_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%B7%B4%E8%A5%BF%E5%B7%B4%E4%BC%8A%E4%BA%9A%E5%B7%9E&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.TranBA_ZH-CN3467060262_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/04/2026-04-19.jpg)
-
-
-
-## 未完成巨像的静默 - 2026-04-18
-![未完成巨像的静默](https://cn.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 摩艾石像采石场，拉诺拉拉库，复活节岛，智利 (© Gavin Hellier/Alamy)
-> [了解更多](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E9%81%97%E4%BA%A7%E6%97%A5&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.MaoiStatues_ZH-CN3219447748_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/04/2026-04-18.jpg)
 
 
 
