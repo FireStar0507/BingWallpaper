@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 野外奇观 - 2026-04-28
+![野外奇观](https://cn.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 眼镜熊在树上休息, 厄瓜多尔 (© Andy Rouse/Nature Picture Library)
+> [了解更多](https://www.bing.com/search?q=%E7%9C%BC%E9%95%9C%E7%86%8A&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/04/2026-04-28.jpg)
+
+
+
 ## 有格调的玻璃 - 2026-04-27
 ![有格调的玻璃](https://cn.bing.com/th?id=OHR.MilanGalleria_ZH-CN6060869879_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E5%9C%B0%E7%90%83%E6%97%A5&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.TartuEstonia_ZH-CN5477370206_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/04/2026-04-22.jpg)
-
-
-
-## 春季的“带刺巡逻兵” - 2026-04-21
-![春季的“带刺巡逻兵”](https://cn.bing.com/th?id=OHR.SpringHedgehog_ZH-CN5232922916_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 西欧刺猬，法国 (© Klein & Hubert/Nature Picture Library)
-> [了解更多](https://www.bing.com/search?q=%E8%A5%BF%E6%AC%A7%E5%88%BA%E7%8C%AC&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.SpringHedgehog_ZH-CN5232922916_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/04/2026-04-21.jpg)
 
 
 
