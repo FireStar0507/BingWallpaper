@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 历史镌刻于石上 - 2026-04-29
+![历史镌刻于石上](https://cn.bing.com/th?id=OHR.BelemTowerBank_ZH-CN6235906597_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 塔霍河岸边的贝伦塔, 里斯本, 葡萄牙 (© f9photos/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E8%B4%9D%E4%BC%A6%E5%A1%94&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.BelemTowerBank_ZH-CN6235906597_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/04/2026-04-29.jpg)
+
+
+
 ## 野外奇观 - 2026-04-28
 ![野外奇观](https://cn.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E8%8E%8E%E5%A3%AB%E6%AF%94%E4%BA%9A%E6%97%A5&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.HathawayCottage_ZH-CN5558945636_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/04/2026-04-23.jpg)
-
-
-
-## 行动的力量 - 2026-04-22
-![行动的力量](https://cn.bing.com/th?id=OHR.TartuEstonia_ZH-CN5477370206_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 阿拉姆-佩德亚自然保护区，塔尔图县，爱沙尼亚 (© Sven Zacek/Nature Picture Library)
-> [了解更多](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E5%9C%B0%E7%90%83%E6%97%A5&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.TartuEstonia_ZH-CN5477370206_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/04/2026-04-22.jpg)
 
 
 
