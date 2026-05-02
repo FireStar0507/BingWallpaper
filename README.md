@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 贾斯珀的自然魅力 - 2026-05-02
+![贾斯珀的自然魅力](https://cn.bing.com/th?id=OHR.GreenJasper_ZH-CN3030401138_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 阿尔伯塔省贾斯珀国家公园中的小型湖泊与湿地，加拿大 (© Don White/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E9%98%BF%E5%B0%94%E4%BC%AF%E5%A1%94%E7%9C%81%E8%B4%BE%E6%96%AF%E7%8F%80%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.GreenJasper_ZH-CN3030401138_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/05/2026-05-02.jpg)
+
+
+
 ## 初夏·翠微长城 - 2026-05-01
 ![初夏·翠微长城](https://cn.bing.com/th?id=OHR.MayLaborDayY26_ZH-CN7554485395_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E8%8B%B9%E6%9E%9C%E6%A0%91&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.AppleBlossoms_ZH-CN5887711928_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/04/2026-04-26.jpg)
-
-
-
-## 打破企鹅规则 - 2026-04-25
-![打破企鹅规则](https://cn.bing.com/th?id=OHR.GalapagosPenguins_ZH-CN5791845489_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 加拉帕戈斯企鹅游泳, 加拉帕戈斯群岛, 厄瓜多尔 (© Henley Spiers/Nature Picture Library)
-> [了解更多](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E4%BC%81%E9%B9%85%E6%97%A5&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.GalapagosPenguins_ZH-CN5791845489_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/04/2026-04-25.jpg)
 
 
 
