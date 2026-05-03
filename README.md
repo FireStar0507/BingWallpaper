@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 萨瓦纳的晚霞 - 2026-05-03
+![萨瓦纳的晚霞](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 萨瓦纳草原的树上睡觉的豹子，马赛马拉国家保护区，肯尼亚 (© Klein & Hubert/Nature Picture Library)
+> [了解更多](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E8%B1%B9%E7%B1%BB%E6%97%A5&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/05/2026-05-03.jpg)
+
+
+
 ## 贾斯珀的自然魅力 - 2026-05-02
 ![贾斯珀的自然魅力](https://cn.bing.com/th?id=OHR.GreenJasper_ZH-CN3030401138_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%9F%83%E9%A9%AC%E5%8A%AA%E5%9F%83%E8%8E%B1%E4%BA%8C%E4%B8%96%E6%8B%B1%E5%BB%8A&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.MilanGalleria_ZH-CN6060869879_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/04/2026-04-27.jpg)
-
-
-
-## 繁花盛放 - 2026-04-26
-![繁花盛放](https://cn.bing.com/th?id=OHR.AppleBlossoms_ZH-CN5887711928_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 粉红色的苹果花, 阿维拉海滩, 加利福尼亚州, 美国 (© Mimi Ditchie Photography/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E8%8B%B9%E6%9E%9C%E6%A0%91&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.AppleBlossoms_ZH-CN5887711928_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/04/2026-04-26.jpg)
 
 
 
