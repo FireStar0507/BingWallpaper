@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 科幻源于现实 - 2026-05-04
+![科幻源于现实](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 乌莱德·索尔坦克萨尔，塔塔温区，突尼斯南部 (© Dark_Eni/Getty Images Plus)
+> [了解更多](https://www.bing.com/search?q=%E6%98%9F%E7%90%83%E5%A4%A7%E6%88%98%E6%97%A5&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/05/2026-05-04.jpg)
+
+
+
 ## 萨瓦纳的晚霞 - 2026-05-03
 ![萨瓦纳的晚霞](https://cn.bing.com/th?id=OHR.MasaiLeopard_ZH-CN3406483238_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%9C%BC%E9%95%9C%E7%86%8A&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/04/2026-04-28.jpg)
-
-
-
-## 有格调的玻璃 - 2026-04-27
-![有格调的玻璃](https://cn.bing.com/th?id=OHR.MilanGalleria_ZH-CN6060869879_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 维托里奥·埃马努埃莱二世拱廊的玻璃穹顶, 米兰, 意大利 (© PhillipMinnis/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%9F%83%E9%A9%AC%E5%8A%AA%E5%9F%83%E8%8E%B1%E4%BA%8C%E4%B8%96%E6%8B%B1%E5%BB%8A&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.MilanGalleria_ZH-CN6060869879_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/04/2026-04-27.jpg)
 
 
 
