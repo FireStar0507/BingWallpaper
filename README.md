@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 藕花风起，首夏清和 - 2026-05-05
+![藕花风起，首夏清和](https://cn.bing.com/th?id=OHR.BeginningofSummerY26_ZH-CN7628545617_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 莲花与莲花植株 (© real444/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E4%B8%AD%E5%9B%BD%E7%9A%84%E8%8D%B7%E8%8A%B1&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.BeginningofSummerY26_ZH-CN7628545617_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/05/2026-05-05.jpg)
+
+
+
 ## 科幻源于现实 - 2026-05-04
 ![科幻源于现实](https://cn.bing.com/th?id=OHR.KsarOuledSoltane_ZH-CN3569810663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E8%B4%9D%E4%BC%A6%E5%A1%94&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.BelemTowerBank_ZH-CN6235906597_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/04/2026-04-29.jpg)
-
-
-
-## 野外奇观 - 2026-04-28
-![野外奇观](https://cn.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 眼镜熊在树上休息, 厄瓜多尔 (© Andy Rouse/Nature Picture Library)
-> [了解更多](https://www.bing.com/search?q=%E7%9C%BC%E9%95%9C%E7%86%8A&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.AndeanBear_ZH-CN6152330738_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/04/2026-04-28.jpg)
 
 
 
