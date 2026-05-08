@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 不仅仅是一声咿呀学语 - 2026-05-08
+![不仅仅是一声咿呀学语](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 撒丁岛母驴和幼崽, 法国 (© Klein & Hubert/Nature Picture Library)
+> [了解更多](https://www.bing.com/search?q=%E9%A9%B4&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/05/2026-05-08.jpg)
+
+
+
 ## 广袤铺展的沙漠 - 2026-05-07
 ![广袤铺展的沙漠](https://cn.bing.com/th?id=OHR.Kofa_ZH-CN0584573563_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E9%98%BF%E5%B0%94%E4%BC%AF%E5%A1%94%E7%9C%81%E8%B4%BE%E6%96%AF%E7%8F%80%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.GreenJasper_ZH-CN3030401138_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/05/2026-05-02.jpg)
-
-
-
-## 初夏·翠微长城 - 2026-05-01
-![初夏·翠微长城](https://cn.bing.com/th?id=OHR.MayLaborDayY26_ZH-CN7554485395_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 中国的长城 (© aphotostory/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E9%95%BF%E5%9F%8E&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.MayLaborDayY26_ZH-CN7554485395_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/05/2026-05-01.jpg)
 
 
 
