@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 一场穿越时空的旅程 - 2026-05-14
+![一场穿越时空的旅程](https://cn.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利 (© bluejayphoto/Getty Images Plus)
+> [了解更多](https://www.bing.com/search?q=%E7%9A%AE%E8%92%82%E5%88%A9%E4%BA%9A%E8%AF%BA&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/05/2026-05-14.jpg)
+
+
+
 ## 银河系，摇滚吧！ - 2026-05-13
 ![银河系，摇滚吧！](https://cn.bing.com/th?id=OHR.AlabamaHills_ZH-CN1387018045_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E9%A9%B4&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.SardinianDonkey_ZH-CN0758031524_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/05/2026-05-08.jpg)
-
-
-
-## 广袤铺展的沙漠 - 2026-05-07
-![广袤铺展的沙漠](https://cn.bing.com/th?id=OHR.Kofa_ZH-CN0584573563_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 科法国家野生动物保护区，亚利桑那州，美国 (© Denis Tangney Jr/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E7%A7%91%E6%B3%95%E5%9B%BD%E5%AE%B6%E9%87%8E%E7%94%9F%E5%8A%A8%E7%89%A9%E4%BF%9D%E6%8A%A4%E5%8C%BA&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.Kofa_ZH-CN0584573563_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/05/2026-05-07.jpg)
 
 
 
