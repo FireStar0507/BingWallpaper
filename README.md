@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 马略卡岛的边缘 - 2026-05-19
+![马略卡岛的边缘](https://cn.bing.com/th?id=OHR.SpainLighthouse_ZH-CN6024263415_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 福门托尔灯塔, 马略卡, 巴利阿里群岛, 西班牙 (© Allard Schager/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E8%A5%BF%E7%8F%AD%E7%89%99%E7%A6%8F%E9%97%A8%E6%89%98%E5%B0%94%E7%81%AF%E5%A1%94&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.SpainLighthouse_ZH-CN6024263415_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/05/2026-05-19.jpg)
+
+
+
 ## 大厅里的希望 - 2026-05-18
 ![大厅里的希望](https://cn.bing.com/th?id=OHR.MuseumLondon_ZH-CN5602977820_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E9%98%BF%E6%8B%89%E5%B7%B4%E9%A9%AC%E5%B1%B1&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.AlabamaHills_ZH-CN1387018045_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/05/2026-05-13.jpg)
-
-
-
-## 振翅, 潜水, 生存 - 2026-05-12
-![振翅, 潜水, 生存](https://cn.bing.com/th?id=OHR.Fratercula_ZH-CN1239275412_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 北极海鹦, 威尔士 (© FLPA/Alamy)
-> [了解更多](https://www.bing.com/search?q=%E5%8C%97%E6%9E%81%E6%B5%B7%E9%B9%A6&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.Fratercula_ZH-CN1239275412_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/05/2026-05-12.jpg)
 
 
 
