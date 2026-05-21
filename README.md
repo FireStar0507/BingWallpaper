@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 酿造传承 - 2026-05-21
+![酿造传承](https://cn.bing.com/th?id=OHR.SichuanTea_ZH-CN6703437873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 四川省的茶梯田, 中国 (© lzf/Shutterstock)
+> [了解更多](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E8%8C%B6%E6%97%A5&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.SichuanTea_ZH-CN6703437873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/05/2026-05-21.jpg)
+
+
+
 ## 喧闹从这里开始 - 2026-05-20
 ![喧闹从这里开始](https://cn.bing.com/th?id=OHR.BumbleBee_ZH-CN6429376340_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%8A%B9%E9%A6%99%E9%B2%B8&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.EndangeredWhales_ZH-CN4053106967_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/05/2026-05-15.jpg)
-
-
-
-## 一场穿越时空的旅程 - 2026-05-14
-![一场穿越时空的旅程](https://cn.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 中世纪古镇皮蒂利亚诺, 托斯卡纳, 意大利 (© bluejayphoto/Getty Images Plus)
-> [了解更多](https://www.bing.com/search?q=%E7%9A%AE%E8%92%82%E5%88%A9%E4%BA%9A%E8%AF%BA&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.Pitigliano_ZH-CN1509921892_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/05/2026-05-14.jpg)
 
 
 
