@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 守护欧洲的自然净土 - 2026-05-24
+![守护欧洲的自然净土](https://cn.bing.com/th?id=OHR.DolomitesPark_ZH-CN7134423478_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 三峰自然公园，南蒂罗尔，意大利 (© Adisorn Fineday Chutikunakorn/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E6%84%8F%E5%A4%A7%E5%88%A9%E4%B8%89%E5%B3%B0%E8%87%AA%E7%84%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.DolomitesPark_ZH-CN7134423478_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/05/2026-05-24.jpg)
+
+
+
 ## 为龟类喝彩！ - 2026-05-23
 ![为龟类喝彩！](https://cn.bing.com/th?id=OHR.ThreeTurtlesButterflies_ZH-CN7043849571_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E5%8D%9A%E7%89%A9%E9%A6%86%E6%97%A5&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.MuseumLondon_ZH-CN5602977820_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/05/2026-05-18.jpg)
-
-
-
-## 静谧之巅，喧嚣之景 - 2026-05-17
-![静谧之巅，喧嚣之景](https://cn.bing.com/th?id=OHR.ShenandoahSunset_ZH-CN4399136794_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 仙纳度国家公园的玳瑁峰, 弗吉尼亚州, 美国 (© John Baggaley/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E4%BB%99%E7%BA%B3%E5%BA%A6%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.ShenandoahSunset_ZH-CN4399136794_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/05/2026-05-17.jpg)
 
 
 
