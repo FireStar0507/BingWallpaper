@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 它们“獭”独一无二 - 2026-05-27
+![它们“獭”独一无二](https://cn.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 海獭，霍默卡奇马克湾，阿拉斯加州，美国 (© roclwyr/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E6%B0%B4%E7%8D%AD%E6%97%A5&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/05/2026-05-27.jpg)
+
+
+
 ## 羽扇豆书写的季节 - 2026-05-26
 ![羽扇豆书写的季节](https://cn.bing.com/th?id=OHR.LupineBloom_ZH-CN7639721663_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E8%8C%B6%E6%97%A5&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.SichuanTea_ZH-CN6703437873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/05/2026-05-21.jpg)
-
-
-
-## 喧闹从这里开始 - 2026-05-20
-![喧闹从这里开始](https://cn.bing.com/th?id=OHR.BumbleBee_ZH-CN6429376340_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 熊蜂在授粉, 伍斯特, 英格兰 (© SimonEastwood87/Shutterstock)
-> [了解更多](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E8%9C%9C%E8%9C%82%E6%97%A5&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.BumbleBee_ZH-CN6429376340_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/05/2026-05-20.jpg)
 
 
 
