@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 设计与秩序相结合 - 2026-05-28
+![设计与秩序相结合](https://cn.bing.com/th?id=OHR.HwaesongFortress_ZH-CN8225341972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 华城堡的古城墙，水原，韩国 (© aomam/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E9%9F%A9%E5%9B%BD%E6%B0%B4%E5%8E%9F%E7%9A%84%E5%8D%8E%E5%9F%8E%E5%A0%A1&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.HwaesongFortress_ZH-CN8225341972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/05/2026-05-28.jpg)
+
+
+
 ## 它们“獭”独一无二 - 2026-05-27
 ![它们“獭”独一无二](https://cn.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E7%94%9F%E7%89%A9%E5%A4%9A%E6%A0%B7%E6%80%A7%E6%97%A5&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.KauehiAtollLagoon_ZH-CN9552036080_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/05/2026-05-22.jpg)
-
-
-
-## 酿造传承 - 2026-05-21
-![酿造传承](https://cn.bing.com/th?id=OHR.SichuanTea_ZH-CN6703437873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 四川省的茶梯田, 中国 (© lzf/Shutterstock)
-> [了解更多](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E8%8C%B6%E6%97%A5&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.SichuanTea_ZH-CN6703437873_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/05/2026-05-21.jpg)
 
 
 
