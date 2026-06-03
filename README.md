@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 路之所止，行之所启 - 2026-06-03
+![路之所止，行之所启](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 骑行者，巴德纳斯雷亚莱斯自然公园与生物圈保护区，纳瓦拉，西班牙 (© Artur Debat/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E8%87%AA%E8%A1%8C%E8%BD%A6%E6%97%A5&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-03.jpg)
+
+
+
 ## 穿行于蓝色之间 - 2026-06-02
 ![穿行于蓝色之间](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN7745288142_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E9%9F%A9%E5%9B%BD%E6%B0%B4%E5%8E%9F%E7%9A%84%E5%8D%8E%E5%9F%8E%E5%A0%A1&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.HwaesongFortress_ZH-CN8225341972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/05/2026-05-28.jpg)
-
-
-
-## 它们“獭”独一无二 - 2026-05-27
-![它们“獭”独一无二](https://cn.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 海獭，霍默卡奇马克湾，阿拉斯加州，美国 (© roclwyr/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E6%B0%B4%E7%8D%AD%E6%97%A5&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.OtterDay_ZH-CN7735013625_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/05/2026-05-27.jpg)
 
 
 
