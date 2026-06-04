@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 优雅羽饰 - 2026-06-04
+![优雅羽饰](https://cn.bing.com/th?id=OHR.PreeningEgret_ZH-CN2216012708_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 梳理羽毛的雪鹭，佛罗里达州中部，美国 (© Donald M. Jones/Minden Pictures)
+> [了解更多](https://www.bing.com/search?q=%E9%9B%AA%E9%B9%AD&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.PreeningEgret_ZH-CN2216012708_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-04.jpg)
+
+
+
 ## 路之所止，行之所启 - 2026-06-03
 ![路之所止，行之所启](https://cn.bing.com/th?id=OHR.BardenasReales_ZH-CN0480548935_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E4%BA%BA%E7%B1%BB%E9%A6%96%E6%AC%A1%E5%BE%81%E6%9C%8D%E4%B8%96%E7%95%8C%E6%9C%80%E9%AB%98%E5%B3%B0&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.SummitEverest_ZH-CN9252833251_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/05/2026-05-29.jpg)
-
-
-
-## 设计与秩序相结合 - 2026-05-28
-![设计与秩序相结合](https://cn.bing.com/th?id=OHR.HwaesongFortress_ZH-CN8225341972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 华城堡的古城墙，水原，韩国 (© aomam/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E9%9F%A9%E5%9B%BD%E6%B0%B4%E5%8E%9F%E7%9A%84%E5%8D%8E%E5%9F%8E%E5%A0%A1&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.HwaesongFortress_ZH-CN8225341972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/05/2026-05-28.jpg)
 
 
 
