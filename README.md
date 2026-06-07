@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 最后一堵墙矗立着 - 2026-06-07
+![最后一堵墙矗立着](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 邓塞弗里克城堡遗址, 安特里姆郡, 北爱尔兰 (© Krzysztof Rogalski/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E9%82%93%E5%A1%9E%E5%BC%97%E9%87%8C%E5%85%8B%E5%9F%8E%E5%A0%A1++&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-07.jpg)
+
+
+
 ## 多走走，多思考 - 2026-06-06
 ![多走走，多思考](https://cn.bing.com/th?id=OHR.HikingNatchez_ZH-CN2495512699_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%84%8F%E5%A4%A7%E5%88%A9%E5%B7%B4%E5%8B%92%E8%8E%AB&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.OlivaPalermo_ZH-CN9639920195_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-01.jpg)
-
-
-
-## 顺流而行 - 2026-05-31
-![顺流而行](https://cn.bing.com/th?id=OHR.EvergladesWetlands_ZH-CN9515366484_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 大沼泽地国家公园航拍景观，佛罗里达州，美国 (© Tetra Images/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%A4%A7%E6%B2%BC%E6%B3%BD%E5%9C%B0%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.EvergladesWetlands_ZH-CN9515366484_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/05/2026-05-31.jpg)
 
 
 
