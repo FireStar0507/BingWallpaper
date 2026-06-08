@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 随波逐流 - 2026-06-08
+![随波逐流](https://cn.bing.com/th?id=OHR.Cyanea_ZH-CN3858079050_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 在海洋中游动的狮鬃水母 (© Alexander Semenov Images/Shutterstock)
+> [了解更多](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E6%B5%B7%E6%B4%8B%E6%97%A5&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.Cyanea_ZH-CN3858079050_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-08.jpg)
+
+
+
 ## 最后一堵墙矗立着 - 2026-06-07
 ![最后一堵墙矗立着](https://cn.bing.com/th?id=OHR.DunseverickCastle2026_ZH-CN3036266326_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E4%B8%AD%E5%9B%BD%E6%9F%B4%E8%BE%BE%E6%9C%A8%E7%9B%86%E5%9C%B0&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.Qinghai_ZH-CN7745288142_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-02.jpg)
-
-
-
-## 历史的况味 - 2026-06-01
-![历史的况味](https://cn.bing.com/th?id=OHR.OlivaPalermo_ZH-CN9639920195_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 巴勒莫暮色下的天际线，西西里岛，意大利 (© Sean Pavone/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E6%84%8F%E5%A4%A7%E5%88%A9%E5%B7%B4%E5%8B%92%E8%8E%AB&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.OlivaPalermo_ZH-CN9639920195_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-01.jpg)
 
 
 
