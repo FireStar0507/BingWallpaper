@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 蔚蓝海礁的守护者 - 2026-06-16
+![蔚蓝海礁的守护者](https://cn.bing.com/th?id=OHR.SevenMileTurtle_ZH-CN4346512721_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 七英里海滩附近的玳瑁海龟伴侣，大开曼岛，开曼群岛 (© Alex Mustard/Nature Picture Library)
+> [了解更多](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E6%B5%B7%E9%BE%9F%E6%97%A5&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.SevenMileTurtle_ZH-CN4346512721_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-16.jpg)
+
+
+
 ## 岁月雕琢，风景始成 - 2026-06-15
 ![岁月雕琢，风景始成](https://cn.bing.com/th?id=OHR.ParkEstd_ZH-CN3419035151_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%86%B0%E5%B2%9B%E8%B5%AB%E7%91%99%E8%90%A8%E6%B3%A2%E9%B2%81%E5%B0%94&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.Hnausapollur_ZH-CN4075343976_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-10.jpg)
-
-
-
-## 品尝日落 - 2026-06-09
-![品尝日落](https://cn.bing.com/th?id=OHR.CTNPVernazza_ZH-CN3971102271_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 韦尔纳扎, 五渔村, 利古里亚, 意大利 (© Kelly Cheng/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E6%84%8F%E5%A4%A7%E5%88%A9%E9%9F%A6%E5%B0%94%E7%BA%B3%E6%89%8E%E4%BA%94%E6%B8%94%E6%9D%91&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.CTNPVernazza_ZH-CN3971102271_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-09.jpg)
 
 
 
