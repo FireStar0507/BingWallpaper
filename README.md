@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 龙吟古韵 - 2026-06-19
+![龙吟古韵](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN5532138555_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 湖中的龙舟，中国 (©  Zhonghui Bao/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E7%AB%AF%E5%8D%88%E8%8A%82&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN5532138555_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-19.jpg)
+
+
+
 ## 坚如磐石的奇观 - 2026-06-18
 ![坚如磐石的奇观](https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%81%B6%E5%9C%B0%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.BadSunset_ZH-CN9050997938_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-13.jpg)
-
-
-
-## 惊鸿一瞥 - 2026-06-12
-![惊鸿一瞥](https://cn.bing.com/th?id=OHR.SpainBeeEater_ZH-CN4424052851_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 黄喉蜂虎，格拉萨莱马山自然公园，加的斯，西班牙 (© Andres M. Dominguez/Nature Picture Library)
-> [了解更多](https://www.bing.com/search?q=%E9%BB%84%E5%96%89%E8%9C%82%E8%99%8E&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.SpainBeeEater_ZH-CN4424052851_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-12.jpg)
 
 
 
