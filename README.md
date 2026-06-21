@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 鸟类好爸爸 - 2026-06-21
+![鸟类好爸爸](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 企鹅爸爸正在检查蛋的情况 (© McDonald Wildlife Photography Inc./Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E7%88%B6%E4%BA%B2%E8%8A%82&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-21.jpg)
+
+
+
 ## 海洋中冰封的大教堂 - 2026-06-20
 ![海洋中冰封的大教堂](https://cn.bing.com/th?id=OHR.ArchedIceberg_ZH-CN2698040371_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%A4%A7%E7%83%9F%E5%B1%B1%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.ParkEstd_ZH-CN3419035151_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-15.jpg)
-
-
-
-## 潜羽探清波 - 2026-06-14
-![潜羽探清波](https://cn.bing.com/th?id=OHR.DuckPond_ZH-CN1683101997_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 绿头鸭 (© Philippe Paternolli/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E7%BB%BF%E5%A4%B4%E9%B8%AD&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.DuckPond_ZH-CN1683101997_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-14.jpg)
 
 
 
