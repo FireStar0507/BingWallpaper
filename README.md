@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 花粉与翅膀相遇 - 2026-06-24
+![花粉与翅膀相遇](https://cn.bing.com/th?id=OHR.BFPollin_ZH-CN7654067396_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 蝴蝶正在黄花上授粉 (© lzh/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E8%9D%B4%E8%9D%B6%E6%8E%88%E7%B2%89&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.BFPollin_ZH-CN7654067396_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-24.jpg)
+
+
+
 ## 天际线上的印记 - 2026-06-23
 ![天际线上的印记](https://cn.bing.com/th?id=OHR.Fujisan_ZH-CN7203975085_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%A7%98%E9%B2%81%E8%90%A8%E5%85%8B%E5%A1%9E%E5%8D%8E%E6%9B%BC&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.Saqsaywaman_ZH-CN2584038469_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-18.jpg)
-
-
-
-## 蜿蜒而上 - 2026-06-17
-![蜿蜒而上](https://cn.bing.com/th?id=OHR.TremolaRoad_ZH-CN8810749250_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 特雷莫拉公路在圣哥达山口，艾罗洛，瑞士 (© Sandro Bisaro/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E7%89%B9%E9%9B%B7%E8%8E%AB%E6%8B%89%E5%85%AC%E8%B7%AF&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.TremolaRoad_ZH-CN8810749250_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-17.jpg)
 
 
 
