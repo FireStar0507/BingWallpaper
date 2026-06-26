@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 时事 - 2026-06-26
+![时事](https://cn.bing.com/th?id=OHR.ThamesSummer_ZH-CN5292532714_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 泰晤士河, 伦敦, 英格兰 (© Daniel Lange/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E6%B3%B0%E6%99%A4%E5%A3%AB%E6%B2%B3&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.ThamesSummer_ZH-CN5292532714_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-26.jpg)
+
+
+
 ## 在广场中感受历史 - 2026-06-25
 ![在广场中感受历史](https://cn.bing.com/th?id=OHR.GrandPlace_ZH-CN8806496436_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%86%B0%E5%B1%B1&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.ArchedIceberg_ZH-CN2698040371_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-20.jpg)
-
-
-
-## 龙吟古韵 - 2026-06-19
-![龙吟古韵](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN5532138555_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 湖中的龙舟，中国 (©  Zhonghui Bao/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E7%AB%AF%E5%8D%88%E8%8A%82&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.DragonBoatFestivalY26_ZH-CN5532138555_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-19.jpg)
 
 
 
