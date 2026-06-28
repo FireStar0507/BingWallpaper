@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 看起来很精神 - 2026-06-28
+![看起来很精神](https://cn.bing.com/th?id=OHR.SaguaroSun_ZH-CN5820504732_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 温德盖特山口附近的巨柱仙人掌, 麦克道尔山脉, 亚利桑那州, 美国 (© Eric Mischke/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E5%B7%A8%E4%BA%BA%E6%9F%B1%E4%BB%99%E4%BA%BA%E6%8E%8C&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.SaguaroSun_ZH-CN5820504732_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-28.jpg)
+
+
+
 ## 逐渐失去立足之地的树木 - 2026-06-27
 ![逐渐失去立足之地的树木](https://cn.bing.com/th?id=OHR.BoneyardBeach_ZH-CN5540590570_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E9%9B%A8%E6%9E%97%E6%97%A5&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.QuinaultFerns_ZH-CN6696428927_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-22.jpg)
-
-
-
-## 鸟类好爸爸 - 2026-06-21
-![鸟类好爸爸](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 企鹅爸爸正在检查蛋的情况 (© McDonald Wildlife Photography Inc./Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E7%88%B6%E4%BA%B2%E8%8A%82&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.EggDad_ZH-CN6045387630_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-21.jpg)
 
 
 
