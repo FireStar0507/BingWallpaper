@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 阴影被拉得修长之处 - 2026-06-30
+![阴影被拉得修长之处](https://cn.bing.com/th?id=OHR.MasaiGiraffe_ZH-CN1665123897_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 马赛马拉国家保护区日落时分的长颈鹿, 肯尼亚 (© danm/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E9%A9%AC%E8%B5%9B%E9%A9%AC%E6%8B%89%E5%9B%BD%E5%AE%B6%E4%BF%9D%E6%8A%A4%E5%8C%BA&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.MasaiGiraffe_ZH-CN1665123897_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-30.jpg)
+
+
+
 ## 生于烈火，拥于碧水 - 2026-06-29
 ![生于烈火，拥于碧水](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_ZH-CN9234363590_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E8%9D%B4%E8%9D%B6%E6%8E%88%E7%B2%89&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.BFPollin_ZH-CN7654067396_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-24.jpg)
-
-
-
-## 天际线上的印记 - 2026-06-23
-![天际线上的印记](https://cn.bing.com/th?id=OHR.Fujisan_ZH-CN7203975085_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 本州岛上的富士山, 日本 (© phutthiseth thongtae/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%AF%8C%E5%A3%AB%E5%B1%B1&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.Fujisan_ZH-CN7203975085_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-23.jpg)
 
 
 
