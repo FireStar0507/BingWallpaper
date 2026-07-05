@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 紫色花海 - 2026-07-05
+![紫色花海](https://cn.bing.com/th?id=OHR.LavenderRows_ZH-CN0676810895_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 瓦朗索勒高原的薰衣草行，普罗旺斯，法国 (© Robert Harding/Shutterstock)
+> [了解更多](https://www.bing.com/search?q=%E8%96%B0%E8%A1%A3%E8%8D%89%E5%B1%9E&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.LavenderRows_ZH-CN0676810895_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-05.jpg)
+
+
+
 ## 此行，不虚绕道 - 2026-07-04
 ![此行，不虚绕道](https://cn.bing.com/th?id=OHR.KaysersbergVillage_ZH-CN0445080679_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E7%83%AD%E5%B8%A6%E6%97%A5&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_ZH-CN9234363590_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-29.jpg)
-
-
-
-## 看起来很精神 - 2026-06-28
-![看起来很精神](https://cn.bing.com/th?id=OHR.SaguaroSun_ZH-CN5820504732_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 温德盖特山口附近的巨柱仙人掌, 麦克道尔山脉, 亚利桑那州, 美国 (© Eric Mischke/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%B7%A8%E4%BA%BA%E6%9F%B1%E4%BB%99%E4%BA%BA%E6%8E%8C&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.SaguaroSun_ZH-CN5820504732_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-28.jpg)
 
 
 
