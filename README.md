@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 百代镌刻之城 - 2026-07-06
+![百代镌刻之城](https://cn.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 锡拉库萨的日落，西西里岛，意大利 (© Balate Dorin/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E9%94%A1%E6%8B%89%E5%BA%93%E8%90%A8+%E8%A5%BF%E8%A5%BF%E9%87%8C%E5%B2%9B&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-06.jpg)
+
+
+
 ## 紫色花海 - 2026-07-05
 ![紫色花海](https://cn.bing.com/th?id=OHR.LavenderRows_ZH-CN0676810895_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E9%A9%AC%E8%B5%9B%E9%A9%AC%E6%8B%89%E5%9B%BD%E5%AE%B6%E4%BF%9D%E6%8A%A4%E5%8C%BA&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.MasaiGiraffe_ZH-CN1665123897_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-30.jpg)
-
-
-
-## 生于烈火，拥于碧水 - 2026-06-29
-![生于烈火，拥于碧水](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_ZH-CN9234363590_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 波拉波拉岛及其泻湖, 南太平洋, 法属波利尼西亚 (© Frederick Millett/Shutterstock)
-> [了解更多](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E7%83%AD%E5%B8%A6%E6%97%A5&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.BoraBoraLagoon_ZH-CN9234363590_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/06/2026-06-29.jpg)
 
 
 
