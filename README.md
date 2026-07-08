@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 远古火山的回响 - 2026-07-08
+![远古火山的回响](https://cn.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 阿蒂特兰湖的日出，危地马拉 (© shayes17/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E5%8D%B1%E5%9C%B0%E9%A9%AC%E6%8B%89+%E9%98%BF%E8%92%82%E7%89%B9%E5%85%B0%E6%B9%96&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-08.jpg)
+
+
+
 ## 林冠华彩 - 2026-07-07
 ![林冠华彩](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%9F%83%E5%8F%8A%E5%9F%83%E6%96%AF%E7%BA%B3%E7%A5%9E%E5%BA%99&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.TempleEsna_ZH-CN9834689523_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-02.jpg)
-
-
-
-## 大西洋雕琢而成的加拿大 - 2026-07-01
-![大西洋雕琢而成的加拿大](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 地牢省立公园, 纽芬兰和拉布拉多省, 加拿大 (© Kaitlyn McLachlan/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%9C%B0%E7%89%A2%E7%9C%81%E7%AB%8B%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.DungeonPark_ZH-CN9544093701_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-01.jpg)
 
 
 
