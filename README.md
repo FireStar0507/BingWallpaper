@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 布列塔尼的潮汐之约 - 2026-07-11
+![布列塔尼的潮汐之约](https://cn.bing.com/th?id=OHR.AurayBrittany_ZH-CN5549157888_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 圣古斯坦港, 欧赖, 布列塔尼, 法国 (© Rolf E. Staerk/Shutterstock)
+> [了解更多](https://www.bing.com/search?q=%E6%B3%95%E5%9B%BD%E6%AC%A7%E8%B5%96%E5%9C%A3%E5%8F%A4%E6%96%AF%E5%BD%93%E6%B8%AF&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.AurayBrittany_ZH-CN5549157888_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-11.jpg)
+
+
+
 ## 陆地与海洋的鸟瞰图 - 2026-07-10
 ![陆地与海洋的鸟瞰图](https://cn.bing.com/th?id=OHR.VictoriaBeach_ZH-CN8892195426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E8%96%B0%E8%A1%A3%E8%8D%89%E5%B1%9E&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.LavenderRows_ZH-CN0676810895_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-05.jpg)
-
-
-
-## 此行，不虚绕道 - 2026-07-04
-![此行，不虚绕道](https://cn.bing.com/th?id=OHR.KaysersbergVillage_ZH-CN0445080679_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 凯泽斯堡，阿尔萨斯，法国 (© Federica Gentile/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%87%AF%E6%B3%BD%E6%96%AF%E5%A0%A1&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.KaysersbergVillage_ZH-CN0445080679_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-04.jpg)
 
 
 
