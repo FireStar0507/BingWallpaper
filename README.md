@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 为摇滚而生 - 2026-07-13
+![为摇滚而生](https://cn.bing.com/th?id=OHR.NavajoSandstone_ZH-CN5009673011_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 羚羊峡谷，纳瓦霍族保留地，亚利桑那州，美国 (© Mark Skalny/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E7%BE%9A%E7%BE%8A%E5%B3%A1%E8%B0%B7&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.NavajoSandstone_ZH-CN5009673011_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-13.jpg)
+
+
+
 ## 缅因州的狂野一面 - 2026-07-12
 ![缅因州的狂野一面](https://cn.bing.com/th?id=OHR.KatahdinWWNM_ZH-CN5496444375_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%9D%BF%E5%98%B4%E5%B1%B1%E5%B7%A8%E5%98%B4%E9%B8%9F&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-07.jpg)
-
-
-
-## 百代镌刻之城 - 2026-07-06
-![百代镌刻之城](https://cn.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 锡拉库萨的日落，西西里岛，意大利 (© Balate Dorin/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E9%94%A1%E6%8B%89%E5%BA%93%E8%90%A8+%E8%A5%BF%E8%A5%BF%E9%87%8C%E5%B2%9B&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.SyracuseItaly_ZH-CN1001695972_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-06.jpg)
 
 
 
