@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 奇妙的真相 - 2026-07-14
+![奇妙的真相](https://cn.bing.com/th?id=OHR.LemonShark_ZH-CN4650331008_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 柠檬鲨幼崽在红树林中，伊柳塞拉岛，巴哈马 (© Shane Gross/Nature Picture Library)
+> [了解更多](https://www.bing.com/search?q=%E6%9F%A0%E6%AA%AC%E9%B2%A8&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.LemonShark_ZH-CN4650331008_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-14.jpg)
+
+
+
 ## 为摇滚而生 - 2026-07-13
 ![为摇滚而生](https://cn.bing.com/th?id=OHR.NavajoSandstone_ZH-CN5009673011_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%8D%B1%E5%9C%B0%E9%A9%AC%E6%8B%89+%E9%98%BF%E8%92%82%E7%89%B9%E5%85%B0%E6%B9%96&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-08.jpg)
-
-
-
-## 林冠华彩 - 2026-07-07
-![林冠华彩](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 板嘴山巨嘴鸟与兰花，厄瓜多尔 (© Murray Cooper/Minden Pictures)
-> [了解更多](https://www.bing.com/search?q=%E6%9D%BF%E5%98%B4%E5%B1%B1%E5%B7%A8%E5%98%B4%E9%B8%9F&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.MountainToucanOrchids_ZH-CN1400221431_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-07.jpg)
 
 
 
