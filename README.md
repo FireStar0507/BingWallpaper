@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 希腊式的逃离 - 2026-07-17
+![希腊式的逃离](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 瓦伊海滩上的日光浴躺椅，克里特岛，希腊 (© borchee/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E5%B8%8C%E8%85%8A%E5%85%8B%E9%87%8C%E7%89%B9%E5%B2%9B&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.VaiUmbrellas_ZH-CN1271422272_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-17.jpg)
+
+
+
 ## 滨水变色龙 - 2026-07-16
 ![滨水变色龙](https://cn.bing.com/th?id=OHR.NavyPier_ZH-CN4649271588_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%B3%95%E5%9B%BD%E6%AC%A7%E8%B5%96%E5%9C%A3%E5%8F%A4%E6%96%AF%E5%BD%93%E6%B8%AF&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.AurayBrittany_ZH-CN5549157888_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-11.jpg)
-
-
-
-## 陆地与海洋的鸟瞰图 - 2026-07-10
-![陆地与海洋的鸟瞰图](https://cn.bing.com/th?id=OHR.VictoriaBeach_ZH-CN8892195426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 陆地与海洋的鸟瞰图，维多利亚州，澳大利亚 (© Nearmap/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E6%BE%B3%E5%A4%A7%E5%88%A9%E4%BA%9A%E7%BB%B4%E5%A4%9A%E5%88%A9%E4%BA%9A%E5%B7%9E&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.VictoriaBeach_ZH-CN8892195426_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-10.jpg)
 
 
 
