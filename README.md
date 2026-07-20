@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 月瞰寰宇 - 2026-07-20
+![月瞰寰宇](https://cn.bing.com/th?id=OHR.Artemis_ZH-CN3540365575_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 月球与地球由阿耳忒弥斯2号机组人员拍摄 (© NASA)
+> [了解更多](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E6%9C%88%E7%90%83%E6%97%A5&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.Artemis_ZH-CN3540365575_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-20.jpg)
+
+
+
 ## 敛羽栖时 - 2026-07-19
 ![敛羽栖时](https://cn.bing.com/th?id=OHR.HirundoRustica_ZH-CN2798518247_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%9F%A0%E6%AA%AC%E9%B2%A8&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.LemonShark_ZH-CN4650331008_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-14.jpg)
-
-
-
-## 为摇滚而生 - 2026-07-13
-![为摇滚而生](https://cn.bing.com/th?id=OHR.NavajoSandstone_ZH-CN5009673011_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 羚羊峡谷，纳瓦霍族保留地，亚利桑那州，美国 (© Mark Skalny/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E7%BE%9A%E7%BE%8A%E5%B3%A1%E8%B0%B7&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.NavajoSandstone_ZH-CN5009673011_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-13.jpg)
 
 
 
