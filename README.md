@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 细微之举，影响深远 - 2026-07-22
+![细微之举，影响深远](https://cn.bing.com/th?id=OHR.CoralAwareness_ZH-CN1621627126_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 珊瑚礁与海滩在拉贾安帕特，印度尼西亚 (© SergeUWPhoto/Shutterstock)
+> [了解更多](https://www.bing.com/search?q=%E7%8F%8A%E7%91%9A%E7%A4%81%E6%84%8F%E8%AF%86%E5%91%A8&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.CoralAwareness_ZH-CN1621627126_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-22.jpg)
+
+
+
 ## 拱影寻踪 - 2026-07-21
 ![拱影寻踪](https://cn.bing.com/th?id=OHR.SantaCatalina_ZH-CN6223370790_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E8%8A%9D%E5%8A%A0%E5%93%A5%E6%B5%B7%E5%86%9B%E7%A0%81%E5%A4%B4&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.NavyPier_ZH-CN4649271588_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-16.jpg)
-
-
-
-## 攀登后的奖励 - 2026-07-15
-![攀登后的奖励](https://cn.bing.com/th?id=OHR.MarieLake_ZH-CN4927917413_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 玛丽湖，约翰·缪尔荒野（毕晓普附近），加利福尼亚州，美国 (© Steve Dunleavy/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E7%BA%A6%E7%BF%B0%C2%B7%E7%BC%AA%E5%B0%94%E8%8D%92%E9%87%8E&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.MarieLake_ZH-CN4927917413_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-15.jpg)
 
 
 
