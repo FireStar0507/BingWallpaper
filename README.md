@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 海陆际会，生机肇始 - 2026-07-26
+![海陆际会，生机肇始](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 红树上的日出在小猪群岛，洪都拉斯 (© Mac Stone/Tandem Stills + Motion)
+> [了解更多](https://www.bing.com/search?q=%E4%BF%9D%E6%8A%A4%E7%BA%A2%E6%A0%91%E6%9E%97%E7%94%9F%E6%80%81%E7%B3%BB%E7%BB%9F%E5%9B%BD%E9%99%85%E6%97%A5&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-26.jpg)
+
+
+
 ## 加境幽廊 - 2026-07-25
 ![加境幽廊](https://cn.bing.com/th?id=OHR.GaliciaBeach_ZH-CN1246611659_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E6%9C%88%E7%90%83%E6%97%A5&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.Artemis_ZH-CN3540365575_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-20.jpg)
-
-
-
-## 敛羽栖时 - 2026-07-19
-![敛羽栖时](https://cn.bing.com/th?id=OHR.HirundoRustica_ZH-CN2798518247_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 不同亚种的家燕聚在一起休息 (© Oscar Dominguez/Tandem Stills + Motion)
-> [了解更多](https://www.bing.com/search?q=%E5%AE%B6%E7%87%95&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.HirundoRustica_ZH-CN2798518247_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-19.jpg)
 
 
 
