@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 仰望芝城，流光溢彩 - 2026-07-27
+![仰望芝城，流光溢彩](https://cn.bing.com/th?id=OHR.ChicagoTiffany_ZH-CN9860688834_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 蒂芙尼穹顶，芝加哥文化中心，伊利诺伊州，美国 (© Felix Lipov/Shutterstock)
+> [了解更多](https://www.bing.com/search?q=%E8%8A%9D%E5%8A%A0%E5%93%A5%E6%96%87%E5%8C%96%E4%B8%AD%E5%BF%83%E8%92%82%E8%8A%99%E5%B0%BC%E7%A9%B9%E9%A1%B6&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.ChicagoTiffany_ZH-CN9860688834_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-27.jpg)
+
+
+
 ## 海陆际会，生机肇始 - 2026-07-26
 ![海陆际会，生机肇始](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%8D%B1%E5%9C%B0%E9%A9%AC%E6%8B%89%E5%9C%A3%E5%8D%A1%E5%A1%94%E7%90%B3%E5%A8%9C%E6%8B%B1%E9%97%A8&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.SantaCatalina_ZH-CN6223370790_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-21.jpg)
-
-
-
-## 月瞰寰宇 - 2026-07-20
-![月瞰寰宇](https://cn.bing.com/th?id=OHR.Artemis_ZH-CN3540365575_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 月球与地球由阿耳忒弥斯2号机组人员拍摄 (© NASA)
-> [了解更多](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E6%9C%88%E7%90%83%E6%97%A5&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.Artemis_ZH-CN3540365575_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-20.jpg)
 
 
 
