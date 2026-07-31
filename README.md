@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 穿越时光的足迹 - 2026-07-31
+![穿越时光的足迹](https://cn.bing.com/th?id=OHR.VirginiaTrail_ZH-CN2299501599_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 鸟瞰弗吉尼亚爬山虎步道，达马斯克斯，弗吉尼亚州，美国 (© Eifel Kreutz/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E5%BC%97%E5%90%89%E5%B0%BC%E4%BA%9A%E7%88%AC%E5%B1%B1%E8%99%8E%E6%AD%A5%E9%81%93&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.VirginiaTrail_ZH-CN2299501599_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-31.jpg)
+
+
+
 ## 旷野无声，活态传承之境 - 2026-07-30
 ![旷野无声，活态传承之境](https://cn.bing.com/th?id=OHR.NavajoNation_ZH-CN9274387505_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E8%A5%BF%E7%8F%AD%E7%89%99%E5%8A%A0%E5%88%A9%E8%A5%BF%E4%BA%9A&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.GaliciaBeach_ZH-CN1246611659_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-25.jpg)
-
-
-
-## 缤纷多彩的一家人 - 2026-07-24
-![缤纷多彩的一家人](https://cn.bing.com/th?id=OHR.GalapagosFlamingos_ZH-CN1152519387_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 美洲红鹳群在伊莎贝拉岛，加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Nature Picture Library)
-> [了解更多](https://www.bing.com/search?q=%E7%BE%8E%E6%B4%B2%E7%BA%A2%E9%B9%B3&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.GalapagosFlamingos_ZH-CN1152519387_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-24.jpg)
 
 
 
