@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 色彩鲜艳的船只，历久弥新的传统 - 2026-08-02
+![色彩鲜艳的船只，历久弥新的传统](https://cn.bing.com/th?id=OHR.HelsinkiBlue_ZH-CN3961551568_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 马尔萨什洛克港口五彩斑斓的渔船，马耳他 (© Klubovy/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E9%A9%AC%E8%80%B3%E4%BB%96%E9%A9%AC%E5%B0%94%E8%90%A8%E4%BB%80%E6%B4%9B%E5%85%8B&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.HelsinkiBlue_ZH-CN3961551568_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-02.jpg)
+
+
+
 ## 基拉韦厄火山的威力 - 2026-08-01
 ![基拉韦厄火山的威力](https://cn.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E8%8A%9D%E5%8A%A0%E5%93%A5%E6%96%87%E5%8C%96%E4%B8%AD%E5%BF%83%E8%92%82%E8%8A%99%E5%B0%BC%E7%A9%B9%E9%A1%B6&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.ChicagoTiffany_ZH-CN9860688834_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-27.jpg)
-
-
-
-## 海陆际会，生机肇始 - 2026-07-26
-![海陆际会，生机肇始](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 红树上的日出在小猪群岛，洪都拉斯 (© Mac Stone/Tandem Stills + Motion)
-> [了解更多](https://www.bing.com/search?q=%E4%BF%9D%E6%8A%A4%E7%BA%A2%E6%A0%91%E6%9E%97%E7%94%9F%E6%80%81%E7%B3%BB%E7%BB%9F%E5%9B%BD%E9%99%85%E6%97%A5&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.RedMangroveSunrise_ZH-CN7940335392_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-26.jpg)
 
 
 
