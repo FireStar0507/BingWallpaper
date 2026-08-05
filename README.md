@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 秘境之门，匠心传世 - 2026-08-05
+![秘境之门，匠心传世](https://cn.bing.com/th?id=OHR.FezMorocco_ZH-CN7662339428_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 非斯皇宫装饰华丽的大门，摩洛哥 (© cgst26/Shutterstock)
+> [了解更多](https://www.bing.com/search?q=%E9%9D%9E%E6%96%AF%E7%9A%87%E5%AE%AB&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.FezMorocco_ZH-CN7662339428_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-05.jpg)
+
+
+
 ## 呼呼，太棒了！ - 2026-08-04
 ![呼呼，太棒了！](https://cn.bing.com/th?id=OHR.AdorableOwlet_ZH-CN6929234033_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%BA%AA%E5%BF%B5%E7%A2%91%E8%B0%B7&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.NavajoNation_ZH-CN9274387505_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-30.jpg)
-
-
-
-## 虎啸归来，锐爪重临 - 2026-07-29
-![虎啸归来，锐爪重临](https://cn.bing.com/th?id=OHR.TigerFamily_ZH-CN9064744163_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 孟加拉虎一家在兰坦博尔国家公园，拉贾斯坦邦，印度 (© Archna Singh/Shutterstock)
-> [了解更多](https://www.bing.com/search?q=%E5%85%A8%E7%90%83%E8%80%81%E8%99%8E%E6%97%A5&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.TigerFamily_ZH-CN9064744163_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/07/2026-07-29.jpg)
 
 
 
