@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 迈向无限 - 2026-08-08
+![迈向无限](https://cn.bing.com/th?id=OHR.StocktonInfinity_ZH-CN5941379745_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 蒂斯河畔斯托克顿无限桥，英格兰 (© Bahadir Yeniceri/Shutterstock)
+> [了解更多](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E6%97%A0%E9%99%90%E6%97%A5&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.StocktonInfinity_ZH-CN5941379745_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-08.jpg)
+
+
+
 ## 指引船只穿越历史 - 2026-08-07
 ![指引船只穿越历史](https://cn.bing.com/th?id=OHR.LimeKiln_ZH-CN5664152522_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E9%A9%AC%E8%80%B3%E4%BB%96%E9%A9%AC%E5%B0%94%E8%90%A8%E4%BB%80%E6%B4%9B%E5%85%8B&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.HelsinkiBlue_ZH-CN3961551568_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-02.jpg)
-
-
-
-## 基拉韦厄火山的威力 - 2026-08-01
-![基拉韦厄火山的威力](https://cn.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 大批熔岩流涌入大洋，大岛，夏威夷州，美国 (© Ken McCurdy/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%A4%8F%E5%A8%81%E5%A4%B7%E7%81%AB%E5%B1%B1%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.HawaiiLava_ZH-CN3257621771_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-01.jpg)
 
 
 
