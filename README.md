@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 两片沙漠交汇之地 - 2026-08-10
+![两片沙漠交汇之地](https://cn.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 约书亚树国家公园，加利福尼亚州，美国 (© JJ Landscapes/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E7%BA%A6%E4%B9%A6%E4%BA%9A%E6%A0%91%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-10.jpg)
+
+
+
 ## 身份认同的建筑表达 - 2026-08-09
 ![身份认同的建筑表达](https://cn.bing.com/th?id=OHR.JMTjibaou_ZH-CN6992670356_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%8C%AB%E5%A4%B4%E9%B9%B0&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.AdorableOwlet_ZH-CN6929234033_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-04.jpg)
-
-
-
-## 色彩鲜艳的船只，历久弥新的传统 - 2026-08-03
-![色彩鲜艳的船只，历久弥新的传统](https://cn.bing.com/th?id=OHR.BoatsMalta_ZH-CN4708255775_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 马尔萨什洛克港口五彩斑斓的渔船，马耳他 (© Klubovy/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E9%A9%AC%E8%80%B3%E4%BB%96%E9%A9%AC%E5%B0%94%E8%90%A8%E4%BB%80%E6%B4%9B%E5%85%8B&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.BoatsMalta_ZH-CN4708255775_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-03.jpg)
 
 
 
