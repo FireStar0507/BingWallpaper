@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 值得守护的巨兽 - 2026-08-12
+![值得守护的巨兽](https://cn.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 安博塞利国家公园的非洲草原象群，卡贾多郡，肯尼亚 (© Ibrahim Suha Derbent/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E5%A4%A7%E8%B1%A1%E6%97%A5&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-12.jpg)
+
+
+
 ## 绚丽多彩的哥本哈根 - 2026-08-11
 ![绚丽多彩的哥本哈根](https://cn.bing.com/th?id=OHR.ColorfulCop_ZH-CN8015611442_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E8%A7%92%E9%A9%AC&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.MaraCrossing_ZH-CN8816902094_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-06.jpg)
-
-
-
-## 秘境之门，匠心传世 - 2026-08-05
-![秘境之门，匠心传世](https://cn.bing.com/th?id=OHR.FezMorocco_ZH-CN7662339428_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 非斯皇宫装饰华丽的大门，摩洛哥 (© cgst26/Shutterstock)
-> [了解更多](https://www.bing.com/search?q=%E9%9D%9E%E6%96%AF%E7%9A%87%E5%AE%AB&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.FezMorocco_ZH-CN7662339428_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-05.jpg)
 
 
 
