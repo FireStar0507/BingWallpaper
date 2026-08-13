@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 许个愿吧 - 2026-08-13
+![许个愿吧](https://cn.bing.com/th?id=OHR.PerseidasTenerife_ZH-CN8520379683_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 泰德天文台上空的英仙座流星，加那利群岛，西班牙 (© Westend61/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E8%8B%B1%E4%BB%99%E5%BA%A7%E6%B5%81%E6%98%9F%E9%9B%A8&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.PerseidasTenerife_ZH-CN8520379683_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-13.jpg)
+
+
+
 ## 值得守护的巨兽 - 2026-08-12
 ![值得守护的巨兽](https://cn.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%9F%B3%E7%81%B0%E7%AA%91%E7%81%AF%E5%A1%94&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.LimeKiln_ZH-CN5664152522_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-07.jpg)
-
-
-
-## 生死渡口，勇者的史诗 - 2026-08-06
-![生死渡口，勇者的史诗](https://cn.bing.com/th?id=OHR.MaraCrossing_ZH-CN8816902094_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 马赛马拉迁徙的角马群横渡马拉河, 肯尼亚 (© Manoj Shah/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E8%A7%92%E9%A9%AC&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.MaraCrossing_ZH-CN8816902094_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-06.jpg)
 
 
 
