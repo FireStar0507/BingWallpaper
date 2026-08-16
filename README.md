@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 天鹅开启传奇之处 - 2026-08-16
+![天鹅开启传奇之处](https://cn.bing.com/th?id=OHR.RossErrillyRuins_ZH-CN9986322001_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 戈尔韦郡罗斯埃里利方济各会修道院遗址，康诺特省，爱尔兰 (© Maria Janus/Shutterstock)
+> [了解更多](https://www.bing.com/search?q=%E7%88%B1%E5%B0%94%E5%85%B0%E7%BD%97%E6%96%AF%C2%B7%E5%9F%83%E9%87%8C%E5%88%A9%E4%BF%AE%E9%81%93%E9%99%A2&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.RossErrillyRuins_ZH-CN9986322001_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-16.jpg)
+
+
+
 ## 绝妙的平衡术 - 2026-08-15
 ![绝妙的平衡术](https://cn.bing.com/th?id=OHR.ValleyDreams_ZH-CN9689713135_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%BA%A6%E4%B9%A6%E4%BA%9A%E6%A0%91%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.SandPath_ZH-CN7820825668_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-10.jpg)
-
-
-
-## 身份认同的建筑表达 - 2026-08-09
-![身份认同的建筑表达](https://cn.bing.com/th?id=OHR.JMTjibaou_ZH-CN6992670356_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 让-马里·吉巴乌文化中心，新喀里多尼亚 (© Fabien Astre/Alamy)
-> [了解更多](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E5%9C%9F%E8%91%97%E4%BA%BA%E6%B0%91%E5%9B%BD%E9%99%85%E6%97%A5&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.JMTjibaou_ZH-CN6992670356_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-09.jpg)
 
 
 
