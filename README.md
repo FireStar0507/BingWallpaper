@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 浪潮间的通道 - 2026-08-19
+![浪潮间的通道](https://cn.bing.com/th?id=OHR.WhyteCliffP_ZH-CN0573407830_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 怀特克利夫公园，西温哥华，加拿大 (© Aolin Chen/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E6%80%80%E7%89%B9%E5%85%8B%E5%88%A9%E5%A4%AB%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.WhyteCliffP_ZH-CN0573407830_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-19.jpg)
+
+
+
 ## 星形城市的几何之美 - 2026-08-18
 ![星形城市的几何之美](https://cn.bing.com/th?id=OHR.Palmanova_ZH-CN0378401592_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E8%8B%B1%E4%BB%99%E5%BA%A7%E6%B5%81%E6%98%9F%E9%9B%A8&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.PerseidasTenerife_ZH-CN8520379683_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-13.jpg)
-
-
-
-## 值得守护的巨兽 - 2026-08-12
-![值得守护的巨兽](https://cn.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 安博塞利国家公园的非洲草原象群，卡贾多郡，肯尼亚 (© Ibrahim Suha Derbent/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E5%A4%A7%E8%B1%A1%E6%97%A5&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.ElephantDay_ZH-CN8350171749_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-12.jpg)
 
 
 
