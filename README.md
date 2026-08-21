@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 攀登在召唤 - 2026-08-21
+![攀登在召唤](https://cn.bing.com/th?id=OHR.JulierPass_ZH-CN3064797820_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 尤利尔山口蜿蜒的公路，瑞士 (© Westend61/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E7%91%9E%E5%A3%AB%E5%B0%A4%E5%88%A9%E5%B0%94%E5%B1%B1%E5%8F%A3&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.JulierPass_ZH-CN3064797820_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-21.jpg)
+
+
+
 ## 鲸群之声 - 2026-08-20
 ![鲸群之声](https://cn.bing.com/th?id=OHR.LynnCanalOrca_ZH-CN0719217908_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E9%98%BF%E4%BB%80%E6%96%AF%E5%88%A9%E5%B8%95%E8%8D%92%E9%87%8E%E5%9C%B0&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.ValleyDreams_ZH-CN9689713135_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-15.jpg)
-
-
-
-## 为动物脚掌而建，而非行人 - 2026-08-14
-![为动物脚掌而建，而非行人](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_ZH-CN9439167246_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 扎克舒夫附近的野生动物通道，波兰 (© bbsferrari/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E9%87%8E%E7%94%9F%E5%8A%A8%E7%89%A9%E9%80%9A%E9%81%93&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.WildlifeCrossingPoland_ZH-CN9439167246_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-14.jpg)
 
 
 
