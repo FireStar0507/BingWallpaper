@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 读懂浪涛之间的讯息 - 2026-08-29
+![读懂浪涛之间的讯息](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 冲浪者航拍图，圣卡塔琳娜州，巴西 (© Wonderful Nature/Shutterstock)
+> [了解更多](https://www.bing.com/search?q=%E5%B7%B4%E8%A5%BF%E5%9C%A3%E5%8D%A1%E5%A1%94%E7%90%B3%E5%A8%9C%E5%B7%9E&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-29.jpg)
+
+
+
 ## 潮汐塑造的传奇 - 2026-08-28
 ![潮汐塑造的传奇](https://cn.bing.com/th?id=OHR.MichelSunset_ZH-CN0822968543_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%A4%84%E6%9A%91%E8%8A%82%E6%B0%94&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.EndofHeatY26_ZH-CN8936468848_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-23.jpg)
-
-
-
-## 天蓝色的翅膀 - 2026-08-22
-![天蓝色的翅膀](https://cn.bing.com/th?id=OHR.CommonBlue_ZH-CN8521430009_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 普通蓝灰蝶，德文郡，英格兰 (© Ross Hoddinott/Nature Picture Library)
-> [了解更多](https://www.bing.com/search?q=%E6%99%AE%E9%80%9A%E8%93%9D%E7%81%B0%E8%9D%B6&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.CommonBlue_ZH-CN8521430009_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-22.jpg)
 
 
 
