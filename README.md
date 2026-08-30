@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 名为鲨鱼的巨型鱼类 - 2026-08-30
+![名为鲨鱼的巨型鱼类](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 鲸鲨与黄金鲹，极乐鸟湾，西巴布亚，印度尼西亚 (© Pete Oxford/Nature Picture Library)
+> [了解更多](https://www.bing.com/search?q=%E9%B2%B8%E9%B2%A8&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-30.jpg)
+
+
+
 ## 读懂浪涛之间的讯息 - 2026-08-29
 ![读懂浪涛之间的讯息](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%B8%83%E9%B2%81%E5%85%8B%E6%9E%97%E5%A4%A7%E6%A1%A5&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.BKBridge_ZH-CN3870511222_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-24.jpg)
-
-
-
-## 暑气渐消，金秋已至 - 2026-08-23
-![暑气渐消，金秋已至](https://cn.bing.com/th?id=OHR.EndofHeatY26_ZH-CN8936468848_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 在处暑时节的村庄田野与寺庙佛塔，江阴市，江苏省，中国 (© jia yu/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%A4%84%E6%9A%91%E8%8A%82%E6%B0%94&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.EndofHeatY26_ZH-CN8936468848_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-23.jpg)
 
 
 
