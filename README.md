@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 海岸边的缤纷色彩 - 2026-09-02
+![海岸边的缤纷色彩](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 传统海滩小屋，索思沃尔德，萨福克遗产海岸，英格兰 (© stevendocwra/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E8%90%A8%E7%A6%8F%E5%85%8B%E9%83%A1%E7%B4%A2%E6%96%AF%E6%B2%83%E5%B0%94%E5%BE%B7&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-02.jpg)
+
+
+
 ## 脚下的世界 - 2026-09-01
 ![脚下的世界](https://cn.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E6%B9%96%E6%B3%8A%E6%97%A5&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.LakeMagadi_ZH-CN0601527009_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-27.jpg)
-
-
-
-## 流光溢彩的天空 - 2026-08-26
-![流光溢彩的天空](https://cn.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 基尔丘山上空的极光，冰岛 (© Cavan Images/Alamy)
-> [了解更多](https://www.bing.com/search?q=%E5%8C%97%E6%9E%81%E5%85%89&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.AurorasIceland_ZH-CN9781322454_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-26.jpg)
 
 
 
