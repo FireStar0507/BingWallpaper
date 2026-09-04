@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 地平线上的红与白 - 2026-09-04
+![地平线上的红与白](https://cn.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 韦斯特黑弗的韦斯特黑弗桑德灯塔，石勒苏益格-荷尔斯泰因州，德国 (© bluejayphoto/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E9%9F%A6%E6%96%AF%E7%89%B9%E9%BB%91%E5%BC%97%E6%A1%91%E5%BE%B7%E7%81%AF%E5%A1%94&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-04.jpg)
+
+
+
 ## 一部守护荒野的法案 - 2026-09-03
 ![一部守护荒野的法案](https://cn.bing.com/th?id=OHR.AZWilderness_ZH-CN2664566131_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%B7%B4%E8%A5%BF%E5%9C%A3%E5%8D%A1%E5%A1%94%E7%90%B3%E5%A8%9C%E5%B7%9E&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-29.jpg)
-
-
-
-## 潮汐塑造的传奇 - 2026-08-28
-![潮汐塑造的传奇](https://cn.bing.com/th?id=OHR.MichelSunset_ZH-CN0822968543_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 涨潮时的圣米歇尔山，芒什省，诺曼底，法国 (© Clement LEONARD/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%9C%A3%E7%B1%B3%E6%AD%87%E5%B0%94%E5%B1%B1&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.MichelSunset_ZH-CN0822968543_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-28.jpg)
 
 
 
