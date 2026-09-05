@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 小小鸟儿，巨大影响 - 2026-09-05
+![小小鸟儿，巨大影响](https://cn.bing.com/th?id=OHR.GreenCrowned_ZH-CN0697075036_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 龙虾爪花上取食的绿顶辉蜂鸟，哥斯达黎加 (© Paul Hobson/Nature Picture Library)
+> [了解更多](https://www.bing.com/search?q=%E5%85%A8%E5%9B%BD%E8%9C%82%E9%B8%9F%E6%97%A5&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.GreenCrowned_ZH-CN0697075036_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-05.jpg)
+
+
+
 ## 地平线上的红与白 - 2026-09-04
 ![地平线上的红与白](https://cn.bing.com/th?id=OHR.Westerheversand_ZH-CN0517707643_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E9%B2%B8%E9%B2%A8&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.YellowShark_ZH-CN1570569826_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-30.jpg)
-
-
-
-## 读懂浪涛之间的讯息 - 2026-08-29
-![读懂浪涛之间的讯息](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 冲浪者航拍图，圣卡塔琳娜州，巴西 (© Wonderful Nature/Shutterstock)
-> [了解更多](https://www.bing.com/search?q=%E5%B7%B4%E8%A5%BF%E5%9C%A3%E5%8D%A1%E5%A1%94%E7%90%B3%E5%A8%9C%E5%B7%9E&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.SantaCatarina_ZH-CN4170292043_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/08/2026-08-29.jpg)
 
 
 
