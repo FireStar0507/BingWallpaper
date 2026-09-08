@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 金色田野 - 2026-09-08
+![金色田野](https://cn.bing.com/th?id=OHR.BeechEngland_ZH-CN1807343872_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 东米恩南唐斯国家公园谷物田中的山毛榉树，汉普郡，英格兰 (© Guy Edwardes/Minden Pictures)
+> [了解更多](https://www.bing.com/search?q=%E8%8B%B1%E6%A0%BC%E5%85%B0%E6%B1%89%E6%99%AE%E9%83%A1&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.BeechEngland_ZH-CN1807343872_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-08.jpg)
+
+
+
 ## 历史沿运河流淌之地 - 2026-09-07
 ![历史沿运河流淌之地](https://cn.bing.com/th?id=OHR.BambergTownhall_ZH-CN1407954732_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E8%90%A8%E7%A6%8F%E5%85%8B%E9%83%A1%E7%B4%A2%E6%96%AF%E6%B2%83%E5%B0%94%E5%BE%B7&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.SuffolkHuts_ZH-CN2463818981_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-02.jpg)
-
-
-
-## 脚下的世界 - 2026-09-01
-![脚下的世界](https://cn.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 马鬃小皮伞，白俄罗斯 (© Máté/Nature Picture Library)
-> [了解更多](https://www.bing.com/search?q=%E9%A9%AC%E9%AC%83%E5%B0%8F%E7%9A%AE%E4%BC%9E&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.HorseHairShroom_ZH-CN2241458451_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-01.jpg)
 
 
 
