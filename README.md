@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 海浪与海岸的高手 - 2026-09-12
+![海浪与海岸的高手](https://cn.bing.com/th?id=OHR.SardineBait_ZH-CN3256234033_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 墨西哥近海围猎沙丁鱼饵球的加州海狮，太平洋 (© Henley Spiers/Nature Picture Library)
+> [了解更多](https://www.bing.com/search?q=%E5%8A%A0%E5%B7%9E%E6%B5%B7%E7%8B%AE&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.SardineBait_ZH-CN3256234033_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-12.jpg)
+
+
+
 ## 地中海风情尽显 - 2026-09-11
 ![地中海风情尽显](https://cn.bing.com/th?id=OHR.FrenchRivieraVillage_ZH-CN2888811422_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%BE%B3%E5%A4%A7%E5%88%A9%E4%BA%9A%E7%BB%B4%E5%A4%9A%E5%88%A9%E4%BA%9A%E5%B7%9E%E6%A0%BC%E5%85%B0%E5%B1%8F%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.LakeFyans_ZH-CN1067187791_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-06.jpg)
-
-
-
-## 小小鸟儿，巨大影响 - 2026-09-05
-![小小鸟儿，巨大影响](https://cn.bing.com/th?id=OHR.GreenCrowned_ZH-CN0697075036_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 龙虾爪花上取食的绿顶辉蜂鸟，哥斯达黎加 (© Paul Hobson/Nature Picture Library)
-> [了解更多](https://www.bing.com/search?q=%E5%85%A8%E5%9B%BD%E8%9C%82%E9%B8%9F%E6%97%A5&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.GreenCrowned_ZH-CN0697075036_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-05.jpg)
 
 
 
