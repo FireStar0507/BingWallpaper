@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 高处的珊瑚礁 - 2026-09-13
+![高处的珊瑚礁](https://cn.bing.com/th?id=OHR.MisurinaPeak_ZH-CN3877105161_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 米苏里纳群峰，多洛米蒂山脉，威尼托大区，意大利 (© Vithun Khamsong/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E5%A4%9A%E6%B4%9B%E7%B1%B3%E8%92%82%E5%B1%B1%E8%84%89%E7%B1%B3%E8%8B%8F%E9%87%8C%E7%BA%B3%E7%BE%A4%E5%B3%B0&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.MisurinaPeak_ZH-CN3877105161_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-13.jpg)
+
+
+
 ## 海浪与海岸的高手 - 2026-09-12
 ![海浪与海岸的高手](https://cn.bing.com/th?id=OHR.SardineBait_ZH-CN3256234033_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%8F%AD%E8%B4%9D%E6%A0%BC&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.BambergTownhall_ZH-CN1407954732_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-07.jpg)
-
-
-
-## 倒影满湖的水库 - 2026-09-06
-![倒影满湖的水库](https://cn.bing.com/th?id=OHR.LakeFyans_ZH-CN1067187791_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 菲安斯湖，格兰屏国家公园，维多利亚州，澳大利亚 (© tracielouise/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E6%BE%B3%E5%A4%A7%E5%88%A9%E4%BA%9A%E7%BB%B4%E5%A4%9A%E5%88%A9%E4%BA%9A%E5%B7%9E%E6%A0%BC%E5%85%B0%E5%B1%8F%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.LakeFyans_ZH-CN1067187791_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-06.jpg)
 
 
 
