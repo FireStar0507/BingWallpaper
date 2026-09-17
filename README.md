@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 为丰收举杯 - 2026-09-17
+![为丰收举杯](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 桑特奈葡萄酒产区葡萄园中的索林风车，伯恩丘，勃艮第，法国 (© Marco Bottigelli/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E6%A1%91%E7%89%B9%E5%A5%88%E8%91%A1%E8%90%84%E9%85%92%E4%BA%A7%E5%8C%BA&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.Santenay_ZH-CN5676942384_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-17.jpg)
+
+
+
 ## 北极的新晋探索者 - 2026-09-16
 ![北极的新晋探索者](https://cn.bing.com/th?id=OHR.IcyCubs_ZH-CN5287408951_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%BB%A8%E6%B5%B7%E8%87%AA%E7%94%B1%E5%9F%8E&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.FrenchRivieraVillage_ZH-CN2888811422_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-11.jpg)
-
-
-
-## 俯瞰大地拼图 - 2026-09-10
-![俯瞰大地拼图](https://cn.bing.com/th?id=OHR.Olvera_ZH-CN2727093856_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 奥尔韦拉航拍图，安达卢西亚，西班牙 (© Marco Bottigelli/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E8%A5%BF%E7%8F%AD%E7%89%99%E5%AE%89%E8%BE%BE%E5%8D%A2%E8%A5%BF%E4%BA%9A%E5%A4%A7%E5%8C%BA%E5%A5%A5%E5%B0%94%E9%9F%A6%E6%8B%89&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.Olvera_ZH-CN2727093856_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-10.jpg)
 
 
 
