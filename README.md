@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 皮毛与海洋之间的生命 - 2026-09-21
+![皮毛与海洋之间的生命](https://cn.bing.com/th?id=OHR.GroomingOtter_ZH-CN6969472572_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 正在梳理皮毛的海獭，蒙特雷湾，加利福尼亚州，美国 (© Suzi Eszterhas/Minden Pictures)
+> [了解更多](https://www.bing.com/search?q=%E6%B5%B7%E7%8D%AD%E8%AE%A4%E7%9F%A5%E5%91%A8&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.GroomingOtter_ZH-CN6969472572_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-21.jpg)
+
+
+
 ## 终获巴黎青睐的铁塔 - 2026-09-20
 ![终获巴黎青睐的铁塔](https://cn.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%BA%A2%E7%BB%BF%E9%87%91%E5%88%9A%E9%B9%A6%E9%B9%89&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.RedMacawsFlight_ZH-CN5045822113_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-15.jpg)
-
-
-
-## 坚韧在此扎根 - 2026-09-14
-![坚韧在此扎根](https://cn.bing.com/th?id=OHR.KochiaChina_ZH-CN4719995421_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 地肤田，中国 (© lingqi xie/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%9C%B0%E8%82%A4&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.KochiaChina_ZH-CN4719995421_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-14.jpg)
 
 
 
