@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 当月亮也来赴会 - 2026-09-25
+![当月亮也来赴会](https://cn.bing.com/th?id=OHR.MidAutumn2026_ZH-CN8947536773_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 庆祝中秋节的中国灯笼 (© LeeYiuTung/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E4%B8%AD%E7%A7%8B%E8%8A%82&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.MidAutumn2026_ZH-CN8947536773_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-25.jpg)
+
+
+
 ## 火山灰与浪花相遇 - 2026-09-24
 ![火山灰与浪花相遇](https://cn.bing.com/th?id=OHR.ElGolfo_ZH-CN8329995759_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%85%95%E5%B0%BC%E9%BB%91%E5%95%A4%E9%85%92%E8%8A%82&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.AlphornBavaria_ZH-CN5896237112_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-19.jpg)
-
-
-
-## 穿越山口腹地 - 2026-09-18
-![穿越山口腹地](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 温纳茨山口，峰区国家公园，英格兰 (© Daniel_Kay/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%B3%B0%E5%8C%BA%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.WinnatsPassPeak_ZH-CN4443458412_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-18.jpg)
 
 
 
