@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 深海夜花园 - 2026-09-27
+![深海夜花园](https://cn.bing.com/th?id=OHR.DecoCrab_ZH-CN0973306994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 海笔上的装饰蟹，科莫多国家公园，印度尼西亚 (© Alex Mustard/Nature Picture Library)
+> [了解更多](https://www.bing.com/search?q=%E7%A7%91%E8%8E%AB%E5%A4%9A%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.DecoCrab_ZH-CN0973306994_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-27.jpg)
+
+
+
 ## 写在大地上的故事 - 2026-09-26
 ![写在大地上的故事](https://cn.bing.com/th?id=OHR.BearsEars_ZH-CN0496897450_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%B5%B7%E7%8D%AD%E8%AE%A4%E7%9F%A5%E5%91%A8&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.GroomingOtter_ZH-CN6969472572_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-21.jpg)
-
-
-
-## 终获巴黎青睐的铁塔 - 2026-09-20
-![终获巴黎青睐的铁塔](https://cn.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 日落时分的埃菲尔铁塔，巴黎，法国 (© Alexander Spatari/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%B7%B4%E9%BB%8E&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.ParisSunset_ZH-CN6050686638_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-20.jpg)
 
 
 
