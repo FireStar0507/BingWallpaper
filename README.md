@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 冰川孕育之河 - 2026-09-29
+![冰川孕育之河](https://cn.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 卡西洛夫河冰川融水滋养的湛蓝河水，阿拉斯加州，美国 (© jared lloyd/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E7%BE%8E%E5%9B%BD%E9%98%BF%E6%8B%89%E6%96%AF%E5%8A%A0%E5%B7%9E%E5%8D%A1%E8%A5%BF%E6%B4%9B%E5%A4%AB%E6%B2%B3&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-29.jpg)
+
+
+
 ## 可览美景的历史胜地 - 2026-09-28
 ![可览美景的历史胜地](https://cn.bing.com/th?id=OHR.AmberHall_ZH-CN1223127100_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%A7%8B%E5%88%86&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-23.jpg)
-
-
-
-## 金色时节 - 2026-09-22
-![金色时节](https://cn.bing.com/th?id=OHR.FallAspens_ZH-CN7235054933_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 瓜兹曼山口附近的秋日山杨林，犹他州，美国 (© Danita Delimont/Shutterstock)
-> [了解更多](https://www.bing.com/search?q=%E7%93%9C%E5%85%B9%E6%9B%BC%E5%B1%B1%E5%8F%A3%E9%99%84%E8%BF%91%E7%9A%84%E7%A7%8B%E6%97%A5%E5%B1%B1%E6%9D%A8%E6%9E%97&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.FallAspens_ZH-CN7235054933_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-22.jpg)
 
 
 
