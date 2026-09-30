@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 一张令人过目难忘的脸 - 2026-09-30
+![一张令人过目难忘的脸](https://cn.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 雄性文须雀，诺福克郡，英格兰 (© Andrew Sproule/Shutterstock)
+> [了解更多](https://www.bing.com/search?q=%E6%96%87%E9%A1%BB%E9%9B%80&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-30.jpg)
+
+
+
 ## 冰川孕育之河 - 2026-09-29
 ![冰川孕育之河](https://cn.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E8%A5%BF%E7%8F%AD%E7%89%99%E5%85%B0%E8%90%A8%E7%BD%97%E7%89%B9%E5%B2%9B&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.ElGolfo_ZH-CN8329995759_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-24.jpg)
-
-
-
-## 金秋平分，地坛染黄 - 2026-09-23
-![金秋平分，地坛染黄](https://cn.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 地坛公园秋日美景，北京，中国 (© by Wei/Adobestock)
-> [了解更多](https://www.bing.com/search?q=%E7%A7%8B%E5%88%86&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.AutumnEquinoxY26_ZH-CN7957453091_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-23.jpg)
 
 
 
