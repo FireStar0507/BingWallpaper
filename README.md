@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 一条值得保护的河流 - 2026-10-02
+![一条值得保护的河流](https://cn.bing.com/th?id=OHR.ChattoogaRiver_ZH-CN9453791496_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 查图加河，阿巴拉契亚山脉，北卡罗来纳州，美国 (© mtilghma/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E7%BE%8E%E5%9B%BD%E9%98%BF%E5%B7%B4%E6%8B%89%E5%A5%91%E4%BA%9A%E5%B1%B1%E8%84%89&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.ChattoogaRiver_ZH-CN9453791496_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/10/2026-10-02.jpg)
+
+
+
 ## 在花岗岩中读懂时间 - 2026-10-01
 ![在花岗岩中读懂时间](https://cn.bing.com/th?id=OHR.OlmstedPoint_ZH-CN4182671075_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%86%8A%E8%80%B3%E5%9B%BD%E5%AE%B6%E7%BA%AA%E5%BF%B5%E5%8C%BA&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.BearsEars_ZH-CN0496897450_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-26.jpg)
-
-
-
-## 当月亮也来赴会 - 2026-09-25
-![当月亮也来赴会](https://cn.bing.com/th?id=OHR.MidAutumn2026_ZH-CN8947536773_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 庆祝中秋节的中国灯笼 (© LeeYiuTung/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E4%B8%AD%E7%A7%8B%E8%8A%82&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.MidAutumn2026_ZH-CN8947536773_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-25.jpg)
 
 
 
