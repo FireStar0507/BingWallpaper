@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 纵身一跃，一次一课 - 2026-10-05
+![纵身一跃，一次一课](https://cn.bing.com/th?id=OHR.AdelieTeacher_ZH-CN2201820679_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 南极洲的阿德利企鹅 (© Otto Plantema/Minden Pictures)
+> [了解更多](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E6%95%99%E5%B8%88%E6%97%A5&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.AdelieTeacher_ZH-CN2201820679_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/10/2026-10-05.jpg)
+
+
+
 ## 宇宙在召唤 - 2026-10-04
 ![宇宙在召唤](https://cn.bing.com/th?id=OHR.ArtemisRocket_ZH-CN1768541365_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%BE%8E%E5%9B%BD%E9%98%BF%E6%8B%89%E6%96%AF%E5%8A%A0%E5%B7%9E%E5%8D%A1%E8%A5%BF%E6%B4%9B%E5%A4%AB%E6%B2%B3&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.KasilofRiver_ZH-CN2394091052_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-29.jpg)
-
-
-
-## 可览美景的历史胜地 - 2026-09-28
-![可览美景的历史胜地](https://cn.bing.com/th?id=OHR.AmberHall_ZH-CN1223127100_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 斋浦尔附近琥珀堡内的 Sattais Katcheri 大厅，拉贾斯坦邦，印度 (© R.M. Nunes/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%8D%B0%E5%BA%A6%E6%8B%89%E8%B4%BE%E6%96%AF%E5%9D%A6%E9%82%A6%E6%96%8B%E6%B5%A6%E5%B0%94%E7%90%A5%E7%8F%80%E5%A0%A1&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.AmberHall_ZH-CN1223127100_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-28.jpg)
 
 
 
