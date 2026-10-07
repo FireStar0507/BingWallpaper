@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 迷惑不解？沿着小径走 - 2026-10-07
+![迷惑不解？沿着小径走](https://cn.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 覆满苔藓的岩石，英国格洛斯特郡谜林，迪恩森林，格洛斯特郡，英格兰 (© Fulcanelli_AOS/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E8%8B%B1%E5%9B%BD%E6%A0%BC%E6%B4%9B%E6%96%AF%E7%89%B9%E9%83%A1%E8%B0%9C%E6%9E%97&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/10/2026-10-07.jpg)
+
+
+
 ## 条纹中的地球故事 - 2026-10-06
 ![条纹中的地球故事](https://cn.bing.com/th?id=OHR.DanxiaLandform_ZH-CN2386060246_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E4%BC%98%E8%83%9C%E7%BE%8E%E5%9C%B0%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.OlmstedPoint_ZH-CN4182671075_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/10/2026-10-01.jpg)
-
-
-
-## 一张令人过目难忘的脸 - 2026-09-30
-![一张令人过目难忘的脸](https://cn.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 雄性文须雀，诺福克郡，英格兰 (© Andrew Sproule/Shutterstock)
-> [了解更多](https://www.bing.com/search?q=%E6%96%87%E9%A1%BB%E9%9B%80&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.BeardReedling_ZH-CN2750632320_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/09/2026-09-30.jpg)
 
 
 
