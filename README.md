@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 现在你“海”能看见我…… - 2026-10-08
+![现在你“海”能看见我……](https://cn.bing.com/th?id=OHR.MayotteOctopus_ZH-CN2837659998_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 印度洋马约特岛，一只呈防御姿态的章鱼 (© Gabriel Barathieu/Minden Pictures)
+> [了解更多](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E7%AB%A0%E9%B1%BC%E6%97%A5&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.MayotteOctopus_ZH-CN2837659998_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/10/2026-10-08.jpg)
+
+
+
 ## 迷惑不解？沿着小径走 - 2026-10-07
 ![迷惑不解？沿着小径走](https://cn.bing.com/th?id=OHR.ForestofDean_ZH-CN2654753621_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%BE%8E%E5%9B%BD%E9%98%BF%E5%B7%B4%E6%8B%89%E5%A5%91%E4%BA%9A%E5%B1%B1%E8%84%89&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.ChattoogaRiver_ZH-CN9453791496_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/10/2026-10-02.jpg)
-
-
-
-## 在花岗岩中读懂时间 - 2026-10-01
-![在花岗岩中读懂时间](https://cn.bing.com/th?id=OHR.OlmstedPoint_ZH-CN4182671075_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 奥姆斯特德观景点的日落，优胜美地国家公园，加利福尼亚州，美国 (© Robb Hirsch/Tandem Stills + Motion)
-> [了解更多](https://www.bing.com/search?q=%E4%BC%98%E8%83%9C%E7%BE%8E%E5%9C%B0%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.OlmstedPoint_ZH-CN4182671075_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/10/2026-10-01.jpg)
 
 
 
