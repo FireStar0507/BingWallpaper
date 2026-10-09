@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 科西嘉岛的岩石前哨 - 2026-10-09
+![科西嘉岛的岩石前哨](https://cn.bing.com/th?id=OHR.IlesSanguinaires_ZH-CN3149346035_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 桑吉奈尔群岛景观，摄自科西嘉岛，法国 (© Francesco Riccardo Iacomino/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E7%A7%91%E8%A5%BF%E5%98%89%E5%B2%9B%E6%A1%91%E5%90%89%E5%A5%88%E5%B0%94%E7%BE%A4%E5%B2%9B&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.IlesSanguinaires_ZH-CN3149346035_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/10/2026-10-09.jpg)
+
+
+
 ## 现在你“海”能看见我…… - 2026-10-08
 ![现在你“海”能看见我……](https://cn.bing.com/th?id=OHR.MayotteOctopus_ZH-CN2837659998_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%A3%95%E7%86%8A&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.GrizzlySwim_ZH-CN1005455737_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/10/2026-10-03.jpg)
-
-
-
-## 一条值得保护的河流 - 2026-10-02
-![一条值得保护的河流](https://cn.bing.com/th?id=OHR.ChattoogaRiver_ZH-CN9453791496_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 查图加河，阿巴拉契亚山脉，北卡罗来纳州，美国 (© mtilghma/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E7%BE%8E%E5%9B%BD%E9%98%BF%E5%B7%B4%E6%8B%89%E5%A5%91%E4%BA%9A%E5%B1%B1%E8%84%89&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.ChattoogaRiver_ZH-CN9453791496_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/10/2026-10-02.jpg)
 
 
 
