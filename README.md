@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 75载，风华正茂 - 2026-10-18
+![75载，风华正茂](https://cn.bing.com/th?id=OHR.DolbadarnWales_ZH-CN3649667806_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 多巴达恩城堡，兰贝里斯，斯诺登尼亚国家公园，威尔士 (© joe daniel price/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E5%A8%81%E5%B0%94%E5%A3%AB%E6%96%AF%E8%AF%BA%E7%99%BB%E5%B0%BC%E4%BA%9A%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.DolbadarnWales_ZH-CN3649667806_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/10/2026-10-18.jpg)
+
+
+
 ## 发掘尘封的过去 - 2026-10-17
 ![发掘尘封的过去](https://cn.bing.com/th?id=OHR.ChauvetPaintingsFrance_ZH-CN3150703955_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%A8%81%E5%B0%94%E5%A3%AB%E6%9B%BC%E5%B8%83%E5%B0%94%E6%96%AF%E7%A0%81%E5%A4%B4&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.MumblesSwansea2026_ZH-CN5419531039_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/10/2026-10-12.jpg)
-
-
-
-## 秋色中转动的水轮 - 2026-10-11
-![秋色中转动的水轮](https://cn.bing.com/th?id=OHR.BabcockSP_ZH-CN5266848536_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 格莱德溪磨坊，巴布科克州立公园，西弗吉尼亚州，美国 (© dszc/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%B7%B4%E5%B8%83%E7%A7%91%E5%85%8B%E5%B7%9E%E7%AB%8B%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.BabcockSP_ZH-CN5266848536_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/10/2026-10-11.jpg)
 
 
 
