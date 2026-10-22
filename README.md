@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 静水映斑斓 - 2026-10-22
+![静水映斑斓](https://cn.bing.com/th?id=OHR.NaejangsanNP_ZH-CN6538893004_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 内藏山国立公园的秋景，韩国 (© Twenty47studio/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E5%86%85%E8%97%8F%E5%B1%B1%E5%9B%BD%E7%AB%8B%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.NaejangsanNP_ZH-CN6538893004_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/10/2026-10-22.jpg)
+
+
+
 ## 飞掠河面 - 2026-10-21
 ![飞掠河面](https://cn.bing.com/th?id=OHR.VietnamBridge_ZH-CN6134321119_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%96%AF%E5%A5%88%E8%B4%B9%E5%B0%94%E6%96%AF%E5%B1%B1&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.SneffelsAutumn_ZH-CN3002661429_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/10/2026-10-16.jpg)
-
-
-
-## 桥梁、屋顶与暮色 - 2026-10-15
-![桥梁、屋顶与暮色](https://cn.bing.com/th?id=OHR.WroclawPoland_ZH-CN6042428292_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 弗罗茨瓦夫集市广场景观，摄自女巫桥，弗罗茨瓦夫，波兰 (© Piotr Mitelski/Shutterstock)
-> [了解更多](https://www.bing.com/search?q=%E5%BC%97%E7%BD%97%E8%8C%A8%E7%93%A6%E5%A4%AB&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.WroclawPoland_ZH-CN6042428292_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/10/2026-10-15.jpg)
 
 
 
