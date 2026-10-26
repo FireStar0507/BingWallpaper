@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 大自然的秋日乐章 - 2026-10-26
+![大自然的秋日乐章](https://cn.bing.com/th?id=OHR.SitovoWaterfall_ZH-CN8495214046_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 秋日瀑布，西托沃附近，普罗夫迪夫州，保加利亚 (© Nadya85/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E4%BF%9D%E5%8A%A0%E5%88%A9%E4%BA%9A%E6%99%AE%E7%BD%97%E5%A4%AB%E8%BF%AA%E5%A4%AB%E8%A5%BF%E6%89%98%E6%B2%83&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.SitovoWaterfall_ZH-CN8495214046_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/10/2026-10-26.jpg)
+
+
+
 ## 群峰与宁静相遇之地 - 2026-10-25
 ![群峰与宁静相遇之地](https://cn.bing.com/th?id=OHR.MaligneFest_ZH-CN8343066766_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%9B%BD%E9%99%85%E6%A0%91%E6%87%92%E6%97%A5&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.BrownSloth_ZH-CN5776383136_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/10/2026-10-20.jpg)
-
-
-
-## 水上通衢 - 2026-10-19
-![水上通衢](https://cn.bing.com/th?id=OHR.VeniceSunrise_ZH-CN5251815339_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 大运河，威尼斯，意大利 (© Juan Romero/Cavan Images)
-> [了解更多](https://www.bing.com/search?q=%E5%A8%81%E5%B0%BC%E6%96%AF%E5%A4%A7%E8%BF%90%E6%B2%B3&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.VeniceSunrise_ZH-CN5251815339_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/10/2026-10-19.jpg)
 
 
 
