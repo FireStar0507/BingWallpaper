@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 薄雾邂逅千年时光 - 2026-10-29
+![薄雾邂逅千年时光](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 立石，埃夫伯里，威尔特郡，英格兰 (© George W Johnson/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E5%A8%81%E5%B0%94%E7%89%B9%E9%83%A1%E5%9F%83%E5%A4%AB%E4%BC%AF%E9%87%8C%E7%8E%AF%E5%BD%A2%E9%81%97%E5%9D%80&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.AveburyStones_ZH-CN9127100951_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/10/2026-10-29.jpg)
+
+
+
 ## 历史守望之地 - 2026-10-28
 ![历史守望之地](https://cn.bing.com/th?id=OHR.KuneticeCastle_ZH-CN8895858920_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E7%81%B0%E7%8B%BC&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.YellowstoneWolves_ZH-CN6767268961_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/10/2026-10-23.jpg)
-
-
-
-## 静水映斑斓 - 2026-10-22
-![静水映斑斓](https://cn.bing.com/th?id=OHR.NaejangsanNP_ZH-CN6538893004_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 内藏山国立公园的秋景，韩国 (© Twenty47studio/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%86%85%E8%97%8F%E5%B1%B1%E5%9B%BD%E7%AB%8B%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.NaejangsanNP_ZH-CN6538893004_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/10/2026-10-22.jpg)
 
 
 
