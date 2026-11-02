@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 写在冰上的未来 - 2026-11-02
+![写在冰上的未来](https://cn.bing.com/th?id=OHR.HudsonBear_ZH-CN6630706907_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 北极熊和幼崽，哈得孙湾畔，马尼托巴省，加拿大 (© Danita Delimont/Adobe Stock)
+> [了解更多](https://www.bing.com/search?q=%E5%8C%97%E6%9E%81%E7%86%8A%E5%91%A8&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.HudsonBear_ZH-CN6630706907_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/11/2026-11-02.jpg)
+
+
+
 ## 林间迷雾 - 2026-11-01
 ![林间迷雾](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%B1%A0%E6%9D%89&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.PondCypress_ZH-CN9472607734_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/10/2026-10-27.jpg)
-
-
-
-## 大自然的秋日乐章 - 2026-10-26
-![大自然的秋日乐章](https://cn.bing.com/th?id=OHR.SitovoWaterfall_ZH-CN8495214046_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 秋日瀑布，西托沃附近，普罗夫迪夫州，保加利亚 (© Nadya85/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E4%BF%9D%E5%8A%A0%E5%88%A9%E4%BA%9A%E6%99%AE%E7%BD%97%E5%A4%AB%E8%BF%AA%E5%A4%AB%E8%A5%BF%E6%89%98%E6%B2%83&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.SitovoWaterfall_ZH-CN8495214046_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/10/2026-10-26.jpg)
 
 
 
