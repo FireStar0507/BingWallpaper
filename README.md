@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 归来的草原巨兽 - 2026-11-07
+![归来的草原巨兽](https://cn.bing.com/th?id=OHR.DakotaBison_ZH-CN2302503868_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 草原上的一头野牛，西奥多·罗斯福国家公园，北达科他州，美国 (© Tandem Stock/Adobe Stock)
+> [了解更多](https://www.bing.com/search?q=%E7%BE%8E%E6%B4%B2%E9%87%8E%E7%89%9B&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.DakotaBison_ZH-CN2302503868_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/11/2026-11-07.jpg)
+
+
+
 ## 穿越毛伊岛的绿色隧道 - 2026-11-06
 ![穿越毛伊岛的绿色隧道](https://cn.bing.com/th?id=OHR.PipiwaiTrail_ZH-CN1811194311_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%BE%B7%E5%9B%BD%E9%BB%91%E6%A3%AE%E6%9E%97&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/11/2026-11-01.jpg)
-
-
-
-## 往昔帝国的幽影 - 2026-10-31
-![往昔帝国的幽影](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_ZH-CN5998782698_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 圣巴尔多禄茂教堂，法兰克福，德国 (© AlxeyPnferov/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E4%B8%87%E5%9C%A3%E8%8A%82&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.FrankfurtHalloween_ZH-CN5998782698_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/10/2026-10-31.jpg)
 
 
 
