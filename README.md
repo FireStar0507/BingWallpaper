@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 光芒四射的节日 - 2026-11-08
+![光芒四射的节日](https://cn.bing.com/th?id=OHR.DiwaliLamps_ZH-CN2462894749_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 排灯节灯笼，孟买，马哈拉施特拉邦，印度 (© Dinodia Photo/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E6%8E%92%E7%81%AF%E8%8A%82&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.DiwaliLamps_ZH-CN2462894749_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/11/2026-11-08.jpg)
+
+
+
 ## 归来的草原巨兽 - 2026-11-07
 ![归来的草原巨兽](https://cn.bing.com/th?id=OHR.DakotaBison_ZH-CN2302503868_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%8C%97%E6%9E%81%E7%86%8A%E5%91%A8&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.HudsonBear_ZH-CN6630706907_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/11/2026-11-02.jpg)
-
-
-
-## 林间迷雾 - 2026-11-01
-![林间迷雾](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 黑森林，巴登-符腾堡州，德国 (© Britus/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%BE%B7%E5%9B%BD%E9%BB%91%E6%A3%AE%E6%9E%97&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.SchwarzwaldAutumn_ZH-CN6323627599_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/11/2026-11-01.jpg)
 
 
 
