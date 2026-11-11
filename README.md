@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 奇妙纷呈的森林 - 2026-11-11
+![奇妙纷呈的森林](https://cn.bing.com/th?id=OHR.Atlantica_ZH-CN6593995386_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 大西洋森林，巴西 (© FG Trade/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E5%B7%B4%E8%A5%BF%E5%A4%A7%E8%A5%BF%E6%B4%8B%E6%A3%AE%E6%9E%97&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.Atlantica_ZH-CN6593995386_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/11/2026-11-11.jpg)
+
+
+
 ## 惬意放松，尽享海岛时光 - 2026-11-10
 ![惬意放松，尽享海岛时光](https://cn.bing.com/th?id=OHR.RoseIsland_ZH-CN6477140814_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E8%8B%B1%E6%A0%BC%E5%85%B0%E6%B9%96%E5%8C%BA&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.StileCrossing_ZH-CN9811465935_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/11/2026-11-05.jpg)
-
-
-
-## 泛舟如画秋林 - 2026-11-04
-![泛舟如画秋林](https://cn.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 五彩落羽杉间划船的人们，宣城，安徽省，中国 (© Jackal Pan/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E8%90%BD%E7%BE%BD%E6%9D%89&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.AutumnChina_ZH-CN7665959692_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/11/2026-11-04.jpg)
 
 
 
