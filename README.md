@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 从黄昏狩猎到黎明 - 2026-11-18
+![从黄昏狩猎到黎明](https://cn.bing.com/th?id=OHR.BarnOwlsUnite_ZH-CN2930153291_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 一对仓鸮 (© Zahoor Salmi/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E4%BB%93%E9%B8%AE&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.BarnOwlsUnite_ZH-CN2930153291_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/11/2026-11-18.jpg)
+
+
+
 ## 走进广阔的大自然 - 2026-11-17
 ![走进广阔的大自然](https://cn.bing.com/th?id=OHR.TrailCedars_ZH-CN2670680285_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%8B%B1%E9%97%A8%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.NorthWindow_ZH-CN6734579353_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/11/2026-11-12.jpg)
-
-
-
-## 奇妙纷呈的森林 - 2026-11-11
-![奇妙纷呈的森林](https://cn.bing.com/th?id=OHR.Atlantica_ZH-CN6593995386_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 大西洋森林，巴西 (© FG Trade/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%B7%B4%E8%A5%BF%E5%A4%A7%E8%A5%BF%E6%B4%8B%E6%A3%AE%E6%9E%97&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.Atlantica_ZH-CN6593995386_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/11/2026-11-11.jpg)
 
 
 
