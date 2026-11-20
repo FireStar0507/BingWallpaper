@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 在峡湾中大快朵颐 - 2026-11-20
+![在峡湾中大快朵颐](https://cn.bing.com/th?id=OHR.Megaptera_ZH-CN3361807823_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 正在潜水的座头鲸，挪威北部特罗姆斯的克瓦尔岛 (© Espen Bergersen/Minden Pictures)
+> [了解更多](https://www.bing.com/search?q=%E5%BA%A7%E5%A4%B4%E9%B2%B8&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.Megaptera_ZH-CN3361807823_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/11/2026-11-20.jpg)
+
+
+
 ## 思想在此成形 - 2026-11-19
 ![思想在此成形](https://cn.bing.com/th?id=OHR.KnowledgeSculpture_ZH-CN3168800853_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E4%B8%AD%E5%9B%BD%E9%A6%99%E6%B8%AF%E7%BB%B4%E5%A4%9A%E5%88%A9%E4%BA%9A%E6%B8%AF&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.BlueHK_ZH-CN1382345392_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/11/2026-11-14.jpg)
-
-
-
-## 冰下秘境 - 2026-11-13
-![冰下秘境](https://cn.bing.com/th?id=OHR.AbrahamCanada_ZH-CN0344365912_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 亚伯拉罕湖，艾伯塔省，加拿大 (© Guang Cao/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E8%89%BE%E4%BC%AF%E5%A1%94%E7%9C%81%E4%BA%9A%E4%BC%AF%E6%8B%89%E7%BD%95%E6%B9%96&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.AbrahamCanada_ZH-CN0344365912_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/11/2026-11-13.jpg)
 
 
 
