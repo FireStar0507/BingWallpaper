@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 秋日的保护色 - 2026-11-24
+![秋日的保护色](https://cn.bing.com/th?id=OHR.CairngormsSquirrel_ZH-CN0941302869_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 红松鼠，凯恩戈姆斯国家公园，苏格兰高地 (© Scotland: The Big Picture/Minden Pictures)
+> [了解更多](https://www.bing.com/search?q=%E6%AC%A7%E4%BA%9A%E7%BA%A2%E6%9D%BE%E9%BC%A0&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.CairngormsSquirrel_ZH-CN0941302869_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/11/2026-11-24.jpg)
+
+
+
 ## 自然中的几何之美 - 2026-11-23
 ![自然中的几何之美](https://cn.bing.com/th?id=OHR.FibonacciFern_ZH-CN3882237848_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E4%BB%93%E9%B8%AE&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.BarnOwlsUnite_ZH-CN2930153291_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/11/2026-11-18.jpg)
-
-
-
-## 走进广阔的大自然 - 2026-11-17
-![走进广阔的大自然](https://cn.bing.com/th?id=OHR.TrailCedars_ZH-CN2670680285_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 雪松林步道，冰川国家公园，蒙大拿州，美国 (© DBushue Photography/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E5%86%B0%E5%B7%9D%E5%9B%BD%E5%AE%B6%E5%85%AC%E5%9B%AD%E7%9A%84%E9%9B%AA%E6%9D%BE%E6%9E%97%E6%AD%A5%E9%81%93&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.TrailCedars_ZH-CN2670680285_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/11/2026-11-17.jpg)
 
 
 
