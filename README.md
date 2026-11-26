@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 彩虹落下的地方 - 2026-11-26
+![彩虹落下的地方](https://cn.bing.com/th?id=OHR.RFHilo_ZH-CN5962114314_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 怀卢库河上的彩虹瀑布，希洛市，夏威夷州，美国 (© Peter Unger/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E5%A4%8F%E5%A8%81%E5%A4%B7%E5%B7%9E%E6%80%80%E5%8D%A2%E5%BA%93%E6%B2%B3%E7%9A%84%E5%BD%A9%E8%99%B9%E7%80%91%E5%B8%83&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.RFHilo_ZH-CN5962114314_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/11/2026-11-26.jpg)
+
+
+
 ## 美国西南部的一场雪 - 2026-11-25
 ![美国西南部的一场雪](https://cn.bing.com/th?id=OHR.SunsetPoint_ZH-CN5737034685_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%BA%A7%E5%A4%B4%E9%B2%B8&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.Megaptera_ZH-CN3361807823_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/11/2026-11-20.jpg)
-
-
-
-## 思想在此成形 - 2026-11-19
-![思想在此成形](https://cn.bing.com/th?id=OHR.KnowledgeSculpture_ZH-CN3168800853_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 雕塑《知识之躯》，由豪梅·普兰萨创作，位于德国法兰克福的法兰克福歌德大学 (© Todamo/Shutterstock)
-> [了解更多](https://www.bing.com/search?q=%E4%B8%96%E7%95%8C%E5%93%B2%E5%AD%A6%E6%97%A5&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.KnowledgeSculpture_ZH-CN3168800853_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/11/2026-11-19.jpg)
 
 
 
