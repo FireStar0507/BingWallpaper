@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 灰金交织的峡谷 - 2026-11-27
+![灰金交织的峡谷](https://cn.bing.com/th?id=OHR.FaceCanyon_ZH-CN9505064248_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 夕阳下的孤峰，鲍威尔湖脸峡谷，犹他州，美国 (© Jeff Foott/Minden)
+> [了解更多](https://www.bing.com/search?q=%E9%B2%8D%E5%A8%81%E5%B0%94%E6%B9%96&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.FaceCanyon_ZH-CN9505064248_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/11/2026-11-27.jpg)
+
+
+
 ## 彩虹落下的地方 - 2026-11-26
 ![彩虹落下的地方](https://cn.bing.com/th?id=OHR.RFHilo_ZH-CN5962114314_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E6%B3%95%E5%9B%BD%E5%B0%BC%E6%96%AF&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.RedNice_ZH-CN3518429866_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/11/2026-11-21.jpg)
-
-
-
-## 在峡湾中大快朵颐 - 2026-11-20
-![在峡湾中大快朵颐](https://cn.bing.com/th?id=OHR.Megaptera_ZH-CN3361807823_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 正在潜水的座头鲸，挪威北部特罗姆斯的克瓦尔岛 (© Espen Bergersen/Minden Pictures)
-> [了解更多](https://www.bing.com/search?q=%E5%BA%A7%E5%A4%B4%E9%B2%B8&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.Megaptera_ZH-CN3361807823_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/11/2026-11-20.jpg)
 
 
 
