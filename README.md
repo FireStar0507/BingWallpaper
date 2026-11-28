@@ -4,6 +4,16 @@
 
 ## 最近7天壁纸
 
+## 跨越时光的桥梁 - 2026-11-28
+![跨越时光的桥梁](https://cn.bing.com/th?id=OHR.VltavaPrague_ZH-CN9898139716_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+
+> 捷克布拉格老城区与伏尔塔瓦河 (© Lara_Uhryn/Getty Images)
+> [了解更多](https://www.bing.com/search?q=%E5%B8%83%E6%8B%89%E6%A0%BC%E7%9A%84%E6%A1%A5%E6%A2%81&form=hpcapt&mkt=zh-cn)
+
+[原图下载](https://cn.bing.com/th?id=OHR.VltavaPrague_ZH-CN9898139716_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/11/2026-11-28.jpg)
+
+
+
 ## 灰金交织的峡谷 - 2026-11-27
 ![灰金交织的峡谷](https://cn.bing.com/th?id=OHR.FaceCanyon_ZH-CN9505064248_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 
@@ -61,16 +71,6 @@
 > [了解更多](https://www.bing.com/search?q=%E5%9C%A3%E8%83%A1%E6%96%AF%E5%A1%94%E5%B0%8F%E6%95%99%E5%A0%82&form=hpcapt&mkt=zh-cn)
 
 [原图下载](https://cn.bing.com/th?id=OHR.JustaHermitage_ZH-CN3751022621_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/11/2026-11-22.jpg)
-
-
-
-## 陶瓦屋顶下的梦 - 2026-11-21
-![陶瓦屋顶下的梦](https://cn.bing.com/th?id=OHR.RedNice_ZH-CN3518429866_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
-
-> 法国普罗旺斯-阿尔卑斯-蔚蓝海岸大区尼斯 (© Siripong Kaewla-iad/Getty Images)
-> [了解更多](https://www.bing.com/search?q=%E6%B3%95%E5%9B%BD%E5%B0%BC%E6%96%AF&form=hpcapt&mkt=zh-cn)
-
-[原图下载](https://cn.bing.com/th?id=OHR.RedNice_ZH-CN3518429866_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) | [本地下载](images/2026/11/2026-11-21.jpg)
 
 
 
